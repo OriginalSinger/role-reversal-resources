@@ -1,14 +1,14 @@
 # Role Reversal Resources
 
-Last Edited: 06 May 2020 (added 1 new manga entry).
-Prev Edited: 03 May 2020 (added 1 new manga entry). The latest entry is tagged <newest>, but the previously tagged <new> entries are still tagged as such. All entries with <new> and <newest> are now highlighted as well for convenience.
-Prev Edited: 30 Apr 2020 (added 1 new manga entry).
-Prev Edited: 22 Apr 2020 (added 3 new manga entries).
-Prev Edited: 06 Apr 2020 (added a new text entry (by cabin_writer)).
-Prev Edited: 11 Feb 2020 (added a new manga entry). All new entries from now on are tagged with <new> for easy ctrl-f access.
+Last Edited: 06 May 2020 (added 1 new manga entry).  
+Prev Edited: 03 May 2020 (added 1 new manga entry). The latest entry is tagged \<newest\>, but the previously tagged  entries are still tagged as such. All entries with \<new\> and \<newest\> are now highlighted as well for convenience.  
+Prev Edited: 30 Apr 2020 (added 1 new manga entry).  
+Prev Edited: 22 Apr 2020 (added 3 new manga entries).  
+Prev Edited: 06 Apr 2020 (added a new text entry (by cabin_writer)).  
+Prev Edited: 11 Feb 2020 (added a new manga entry). All new entries from now on are tagged with \<new\> for easy ctrl-f access.  
 
-Note: the original gdoc was flagged. Here's a backup of the original gdoc: https://drive.google.com/file/d/100nIw1mh5paYFdqukmkgiqvs8VATcSvW/view?usp=sharing
-It's a zip file (mainly an attempt to avoid the flagging of google) of a pdf and a docx file of the original document. The docx file includes the comments, the pdf file does not.
+Note: the original gdoc was flagged. Here's a backup of the original gdoc: https://drive.google.com/file/d/100nIw1mh5paYFdqukmkgiqvs8VATcSvW/view?usp=sharing  
+It's a zip file (mainly an attempt to avoid the flagging of google) of a pdf and a docx file of the original document. The docx file includes the comments, the pdf file does not.  
 I'll update this paste just like I did with the original gdoc, but at some point I'd like to host this list at another site. I'll put the link here when I've done it.
 
 ### Legend
@@ -49,8 +49,8 @@ I'll update this paste just like I did with the original gdoc, but at some point
     - "The Big Bad Wolf" rnm - https://pastebin.com/RXYWAw18
     - "The Big Bad Wolf 2" rnm - https://pastebin.com/eeZ9ZdKF
 - CampGreen rnm - https://archiveofourown.org/users/CampGreen/pseuds/CampGreen
-- cabin_writer - https://pastebin.com/u/cabin_writer <new>
-	- "Fever Dreams" gns - https://pastebin.com/8BUtvNeC <new>
+- cabin_writer - https://pastebin.com/u/cabin_writer \<new\>
+	- "Fever Dreams" gns - https://pastebin.com/8BUtvNeC \<new\>
 - captainhab - https://pastebin.com/u/captainahab
 - CC “Cherry” Brandi g - https://cccherribrandi.blogspot.com/
 - Counselor r - https://www.thevalkyrie.com/stories/counselor/index.htm (thanks to u/natwa311)
@@ -77,7 +77,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
     - "AmazonXNobleman" rna - https://pastebin.com/YLiJ2HaN
 - jeffrey214 - Literotica (archived)
     - "Courtesan Cop series" rn - https://web.archive.org/web/20150111003643/https://www.literotica.com/s/courtesan-cop-ch-01
-- Junephiel - "My Boy" <new> - https://archiveofourown.org/works/22554829
+- Junephiel - "My Boy" \<new\> - https://archiveofourown.org/works/22554829
 - KnightWriter rgk - https://pastebin.com/u/KnightWriter
     - "Lady Johanna - Intro" rgk - https://pastebin.com/CqCbh3Q7
     - "Lady Johanna - Chapter 1" rgk - https://pastebin.com/CqCbh3Q7
@@ -129,7 +129,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
     - Everything he's ever written, with tags and synopses - https://pastebin.com/dHd9iFCN
 - SnoopingDetective r - https://www.deviantart.com/snoopingdetective
     - "The Pool Party: A Gender Roles Reversed Story" rn - https://www.deviantart.com/snoopingdetective/art/The-Pool-Party-A-Gender-Roles-Reversed-Story-644971822
-- Sonnyjimjr <new> - https://fictionmania.tv/searchdisplay/authordisplay.html?word=5456
+- Sonnyjimjr \<new\> - https://fictionmania.tv/searchdisplay/authordisplay.html?word=5456
 - taiyakisoba - https://archiveofourown.org/users/taiyakisoba/pseuds/taiyakisoba/works
     - "Bringing the Heat" rg - https://archiveofourown.org/works/2454164
     - "In Her Ardent Embrace" rg - https://archiveofourown.org/works/2606318
@@ -204,7 +204,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Hyoutenka no Nukumori r - https://mangadex.org/title/42000
 - Ice Guy and the Cool Female Colleague r - https://mangadex.org/title/35447
 - Ijiranaide, Nagatoro-san d - https://mangadex.org/title/22631
-- Immortal Swordsman in The Reverse World r - https://mangadex.org/title/45361 <new>
+- Immortal Swordsman in The Reverse World r - https://mangadex.org/title/45361 \<new\>
 - It’s Not Meguro-san’s First Time - https://mangadex.org/title/31233 (thanks to u/realFoobanana)
 - Kanokon g - https://mangadex.org/title/235 (thanks to u/FloatAway97)
 - Karakai Jouzu no Takagi-san - https://mangadex.org/title/13108
@@ -212,8 +212,8 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Koisuru Yankee Girl d - https://mangadex.org/title/19245 (thanks to u/realFoobanana)
 - Koitsu, Ore No Koto Suki Nanoka?! rd - https://www.mangadex.org/title/28499
 - Kono Onee-san wa Fiction desu!? g - https://mangadex.org/title/449
-- Kubo-san Doesn't Leave Me Be (a Mob) - https://mangadex.org/title/42390 <new>
-- Leona and the Werewolf - https://www.webtoons.com/en/challenge/leona-the-werewolf-h/list?title_no=427339 <new>
+- Kubo-san Doesn't Leave Me Be (a Mob) - https://mangadex.org/title/42390 \<new\>
+- Leona and the Werewolf - https://www.webtoons.com/en/challenge/leona-the-werewolf-h/list?title_no=427339 \<new\>
 - Looking Up to You r - https://mangadex.org/title/32017
 - Love is Still Too Early for Himeno-chan - https://mangadex.org/title/29728
 - Mizutama Honey Boy r - https://mangadex.org/title/14869
@@ -236,8 +236,8 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Seishun Otome Banchou! - https://mangadex.org/title/14320 (thanks to u/Reymma)
 - Senpai×Kouhai r - https://mangadex.org/title/24153
 - Sewayaki Kitsune no Senko-san g - https://mangadex.org/title/22723 (thanks to u/FloatAway97)
-- She's the Prince and I'm the Princess!? r - https://mangadex.org/title/44370 <new>
-- Show me your Boobs r - https://mangadex.org/title/48318 <newest>
+- She's the Prince and I'm the Princess!? r - https://mangadex.org/title/44370 \<new\>
+- Show me your Boobs r - https://mangadex.org/title/48318 \<newest\>
 - Stalkers - https://mangadex.org/title/32697
 - Sunoharasou no Kanrinin-san gs - https://mangadex.org/title/19779
 - Sunstone g - https://readcomiconline.to/Comic/Sunstone (thanks to u/sensuallbdsm)
@@ -248,10 +248,10 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - The Hero and the Priestess rg - https://mangadex.org/title/33224
 - The Sensual M - https://www.spottoon.com/book/41/147/THE_SENSUAL_M_S1
 - The Story of an Onee-San Who Wants to Keep a High School Boy. rg - https://mangadex.org/title/25264
-- The Story Of The Girl I Like Being Too Ikemen r - https://hatigarmscanz.net/comics/8275-the-story-of-the-girl-i-like-being-too-ikemen <new>
+- The Story Of The Girl I Like Being Too Ikemen r - https://hatigarmscanz.net/comics/8275-the-story-of-the-girl-i-like-being-too-ikemen \<new\>
 - The World of Moral Reversal r - https://mangadex.org/title/20978
 - Tonari no Idol-san - https://mangadex.org/title/33487
-- Tonari no Kinniku Joshi <new> - https://mangadex.org/title/40377
+- Tonari no Kinniku Joshi \<new\> - https://mangadex.org/title/40377
 - Trans Trans g - https://www.mangahere.cc/manga/trans_trans/ (thanks to u/FloatAway97)
 - Tsumi to Kai - https://mangadex.org/title/22727 (Note: NOT gentle)
 - Tsuru Tsuru to Zara Zara no Aida r - https://mangadex.org/title/11914
