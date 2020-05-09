@@ -261,6 +261,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Tonari no Kinniku Joshi - https://mangadex.org/title/40377
 - Trans Trans \<g\> - https://www.mangahere.cc/manga/trans_trans/ (thanks to u/FloatAway97)
 - Tsumi to Kai - https://mangadex.org/title/22727 (Note: NOT gentle)
+- Tsun-Sweet Boyfriend \<r\> - https://mangadex.org/title/34035
 - Tsuru Tsuru to Zara Zara no Aida \<r\> - https://mangadex.org/title/11914
 - Waltz \<r\> - https://mangadex.org/title/22006 (Note the psychological tag)
 - Watashi no Shounen \<x\>\<s\> - https://mangadex.org/title/20346
