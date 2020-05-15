@@ -21,7 +21,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
 ### Legend
 - \<r\> - role reversal
 - \<g\> - gentle femdom
-- \<n\> - non-consent (attempted or otherwise)
+- \<n\> - non-consent
 - \<m\> - monstergirl
 - \<a\> - amazon
 - \<d\> - female delinquent, gyaru, etc.
@@ -29,6 +29,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - \<k\> - female knight/warrior
 - \<s\> - shota
 - \<c\> - crossdressing
+- \<p\> - pegging
 
 
 ## Writings
@@ -93,6 +94,8 @@ I'll update this paste just like I did with the original gdoc, but at some point
     - "Lady Johanna - Chapter 4" \<r\>\<g\>\<k\> - https://pastebin.com/YbdKsi83
     - "Lady Johanna - Chapter 5" \<r\>\<g\>\<k\> - https://pastebin.com/Z6XuqM9Z
     - "Lady Johanna - Chapter 6" \<r\>\<g\>\<k\> - https://pastebin.com/BtHXmQ53
+- Lara Kinsey
+    - "Hammer & Tongs" \<r\>\<g\>\<p\> - https://www.amazon.com/Hammer-Tongs-Chances-Limited-Book-ebook/dp/B0842ZPP9C
 - LateStageInfernalism - Scripts and Writing (Google Sheets)
     - "Unnatural Thirsts" \<g\>\<m\> - https://www.literotica.com/s/unnatural-thirsts
 - Lazah \<r\> - https://www.literotica.com/stories/memberpage.php?uid=4639865&page=submissions (thanks to u/lazah77)
@@ -153,6 +156,8 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - Tak138 - https://archiveofourown.org/users/Tak138/pseuds/Tak138
     - “Sapphire; Color of the Sea” - https://archiveofourown.org/works/15984947
     - “Things Expected and Not” - https://archiveofourown.org/works/21815479
+- Tommykaine
+    - "Please don't take my sunshine" \<r\> - https://archiveofourown.org/works/14004846 (Focuses on M/M, but has F/M elements)
 - The Anon and His Kitten \<r\> - https://anonandkitten.blogspot.com/(recommended by someone I can't find right now)
     - "The Anon and His Kitten" \<r\> - https://anonandkitten.blogspot.com/2011/09/while-i-sleep.html
 - Twiddlesticks (Shovel Knight Works) \<r\> - https://archiveofourown.org/users/Twiddlesticks/pseuds/Twiddlesticks/works?fandom_id=2991845
@@ -252,6 +257,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - That Girl Is Not Just Cute - https://mangadex.org/title/33326
 - The Duke of Death and His Black Maid - https://mangadex.org/title/22422
 - The girl I like forgot her glasses - https://mangadex.org/title/32648
+- The Girl with a Kansai Accent and the Pure Boy \<s\> - https://mangadex.org/title/46433
 - The Hero and the Priestess \<r\>\<g\> - https://mangadex.org/title/33224
 - The Sensual M - https://www.spottoon.com/book/41/147/THE_SENSUAL_M_S1
 - The Story of an Onee-San Who Wants to Keep a High School Boy. \<r\>\<g\> - https://mangadex.org/title/25264
@@ -269,6 +275,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Witch Craft Works \<r\> - https://mangadex.org/title/46
 - Yancha Gal no Anjou-san \<d\> - https://mangadex.org/title/26630 (thanks to u/Naizuri77)
 - Yankee Shota to Otaku Onee-san \<s\>\<d\> - https://mangadex.org/title/22077
+- Yofukashi no Uta - https://mangadex.org/title/40969
 - Yuuutsu to Succubus-san \<g\> - https://mangadex.org/title/21423 (thanks to u/FloatAway97)
 - Muto and Sato \<r\> - https://mangadex.org/title/36305/muto-and-sato
 
