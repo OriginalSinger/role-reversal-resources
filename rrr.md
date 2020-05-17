@@ -101,6 +101,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - Lazah \<r\> - https://www.literotica.com/stories/memberpage.php?uid=4639865&page=submissions (thanks to u/lazah77)
     - "In Your Honor" \<r\> - https://www.literotica.com/s/in-your-honor
     - "In Your Wildest Dreams" \<r\> - https://www.literotica.com/s/in-your-wildest-dreams-1
+- manwhohasitall \<r\> - https://twitter.com/manwhohasitall (h/t [/u/\_nok](https://reddit.com/r/RoleReversal/comments/gahbx4))
 - MarsBenway - https://www.literotica.com/stories/memberpage.php?uid=4366564&page=submissions
     - Used by London Bankers \<r\>\<n\> - https://www.literotica.com/s/used-by-london-bankers
 - Martha Wells - "The Books of the Raksura"
@@ -190,6 +191,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 **MDList** (MangaDex List): https://mangadex.org/list/424485
 
 - (Not) a Househusband \<r\> - https://mangadex.org/title/22832
+- A Girl Who Unconsciously Acts Boyish \<r\> - https://mangadex.org/title/46953
 - A Hero Can't Go On A Journey \<g\>\<k\> - https://mangadex.org/title/31356
 - Akame ga KILL! - https://mangadex.org/title/219
 - Aku no Hana - https://mangadex.org/title/436 (Note the Psychological tag)
@@ -221,6 +223,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Kanokon \<g\> - https://mangadex.org/title/235 (thanks to u/FloatAway97)
 - Karakai Jouzu no Takagi-san - https://mangadex.org/title/13108
 - Kawaii Hito \<r\> - https://mangadex.org/title/16050
+- Kitty Boy - https://tapas.io/series/kittyboy (h/t [/u/UtaTan](https://www.reddit.com/r/RoleReversal/comments/f5ruo4))
 - Koisuru Yankee Girl \<d\> - https://mangadex.org/title/19245 (thanks to u/realFoobanana)
 - Koitsu, Ore No Koto Suki Nanoka?! \<r\>\<d\> - https://www.mangadex.org/title/28499
 - Kono Onee-san wa Fiction desu!? \<g\> - https://mangadex.org/title/449
@@ -230,8 +233,10 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Love is Still Too Early for Himeno-chan - https://mangadex.org/title/29728
 - Mizutama Honey Boy \<r\> - https://mangadex.org/title/14869
 - Modokidomo \<d\> - https://mangadex.org/title/22490
+- Mutou and Satou \<r\> - https://mangadex.org/title/36305
 - My Husband Is A Housewife - https://mangadex.org/title/38899
 - Newman \<g\> - https://www.webtoons.com/en/fantasy/newman/list?title_no=405&page=1 (thanks to u/S1ng1ngb1rd)
+- No Filter x No Confidence \<r\> - https://mangadex.org/title/47506
 - No Matter What You Say, Furi-san is Scary. \<d\> - https://mangadex.org/title/32911
 - Oh! Lord Jesus \<r\> - https://www.webtoons.com/en/romance/oh-holy/list?title_no=809 / https://mangadex.org/title/16655
 - Ojou-sama ga Mamorasete Kurenai \<r\> - https://mangadex.org/title/33400
@@ -258,6 +263,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - The Duke of Death and His Black Maid - https://mangadex.org/title/22422
 - The girl I like forgot her glasses - https://mangadex.org/title/32648
 - The Girl with a Kansai Accent and the Pure Boy \<s\> - https://mangadex.org/title/46433
+- The Great Wife / My Wife is a Gangster \<r\>\<d\> - https://merakiscans.com/manga/the-great-wife (h/t [/u/mysteryguy74](https://reddit.com/r/RoleReversal/comments/eos4kj))
 - The Hero and the Priestess \<r\>\<g\> - https://mangadex.org/title/33224
 - The Sensual M - https://www.spottoon.com/book/41/147/THE_SENSUAL_M_S1
 - The Story of an Onee-San Who Wants to Keep a High School Boy. \<r\>\<g\> - https://mangadex.org/title/25264
@@ -277,7 +283,6 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Yankee Shota to Otaku Onee-san \<s\>\<d\> - https://mangadex.org/title/22077
 - Yofukashi no Uta - https://mangadex.org/title/40969
 - Yuuutsu to Succubus-san \<g\> - https://mangadex.org/title/21423 (thanks to u/FloatAway97)
-- Muto and Sato \<r\> - https://mangadex.org/title/36305/muto-and-sato
 
 
 ## H-Manga
@@ -288,6 +293,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
     - “The World of Moral Reversal” (series) \<r\> - https://mangadex.org/title/33149
 - Ayane - "Seed Potato Fair → Rapid Planting" \<r\>\<g\>\<n\> - https://hentai.cafe/hc.fyi/1322
 - Batsu - "Over Work Love" \<g\> - https://www.tsumino.com/Book/Info/39923
+- Benimura Karu - "I Want My Reward!" \<r\>\<g\> - https://hentainexus.com/view/4829 (h/t [/u/qwerqertsadafcw](https://reddit.com/r/RoleReversal/comments/gi0sre))
 - Blmanian - "Dark Service Committee" \<r\>\<d\> - https://nhentai.net/g/105637/
 - bobobo - "Elder Sister-in-Law's Milk!" \<r\>\<n\> - https://www.tsumino.com/Book/Info/25756
 - Butcha U - "An X Mada Preparatory Issue" \<g\> - https://www.tsumino.com/Book/Info/20300
@@ -404,6 +410,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Sena Youtarou
     - "The Witch, The Succubus, And The Cute Apprentice Ch. 1-10 & Extra" - https://nhentai.net/g/104984/
 - Shinooka Homare - "Little Brother, You Are My Ottoman" \<r\>\<n\> - https://www.tsumino.com/Book/Info/19560
+- Shiwasu no Okina - "Please! Freeze! Please!" \<r\>\<g\> - https://mangadex.org/title/45993
 - SOLOPIPB
     - "I'm Not Waiting Anymore" \<r\>\<n\> - https://www.tsumino.com/Book/Info/29017
     - "Koishirete Uwabami!" \<r\>\<g\>\<m\> - https://www.tsumino.com/Book/Info/26138
@@ -475,6 +482,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
     - Kashima/Hori
 - Miraculous Ladybug (Animated)
 - Darling in the FranXX (Anime)
+- RWBY (Animated) (h/t [/u/Obi-wanna-cracker](https://reddit.com/r/RoleReversal/comments/glbpyc))
 
 
 ## Other /gfd/ /rr/ resources
