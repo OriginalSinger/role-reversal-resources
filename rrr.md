@@ -419,7 +419,11 @@ I compiled these into an MDList. It’s better to browse there since you can dir
     - "Layers of White 2" \<r\>\<g\>\<m\>\<s\> - https://www.tsumino.com/Book/Info/16172
     - "Shiragasane (Darning) -Zen/Tan-" \<g\>\<m\> - https://www.tsumino.com/Book/Info/22510
     - "Shiragasane -bo-" \<r\>\<g\>\<n\>\<m\>\<s\> - https://www.tsumino.com/Book/Info/37081
+    - "Shiragasane -Tsuzure-" \<r\>\<g\>\<n\>\<m\> - https://www.tsumino.com/entry/45971
     - "Normal Relationship" \<r\>\<g\>\<n\>\<s\> - https://www.tsumino.com/Book/Info/20323
+- Survival Knife
+    - "Schwarz Weiß" \<r\>\<n\>/<k/>\<s\> - https://hentainexus.com/view/6012
+    - "Schwarz Weiß ~Reverse~" \<r\>\<g\>\<n\>\<m\>/<k/>\<s\>\<c\> https://hentainexus.com/view/7974
 - Suzuki Address - "LOVE² Hurricane!!" \<r\>\<g\>\<n\> - https://www.tsumino.com/Book/Info/10527
 - Taira Kosaka - "Zetsubou☆Rocker Room" \<r\>\<n\>\<d\> - https://www.tsumino.com/Book/Info/937
 - Takei Ooki
