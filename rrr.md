@@ -306,7 +306,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
     - "Just Like in Doujinshi" \<r\>\<s\> - https://www.tsumino.com/Book/Info/40136
     - "Kemo Ane x Shotaero Manga 2 Zenpen" \<r\>\<m\>\<s\> - https://www.tsumino.com/Book/Info/20564
     - "Oneshota Ero Manga" \<r\>\<n\>\<m\>\<s\> - https://www.tsumino.com/Book/Info/18034
-    - "One Shota Ero Manga Kouhen ~Sensei no Ichirinzashi~" \<r\>\<g\>\<m\>\<s\> - https://www.tsumino.com/Book/Info/22687
+    - "One Shota Ero Manga Kouhen \~Sensei no Ichirinzashi\~" \<r\>\<g\>\<m\>\<s\> - https://www.tsumino.com/Book/Info/22687
     - "Run Away" \<g\>\<s\> - https://www.tsumino.com/Book/Info/33835
     - "The Day It Began" \<r\>\<s\> - https://www.tsumino.com/Book/Info/34378
     - "The Endless Days" \<r\> - https://www.tsumino.com/Book/Info/38278
@@ -423,7 +423,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
     - "Normal Relationship" \<r\>\<g\>\<n\>\<s\> - https://www.tsumino.com/Book/Info/20323
 - Survival Knife
     - "Schwarz Weiß" \<r\>\<n\>/<k/>\<s\> - https://hentainexus.com/view/6012
-    - "Schwarz Weiß ~Reverse~" \<r\>\<g\>\<n\>\<m\>/<k/>\<s\>\<c\> https://hentainexus.com/view/7974
+    - "Schwarz Weiß \~Reverse\~" \<r\>\<g\>\<n\>\<m\>/<k/>\<s\>\<c\> https://hentainexus.com/view/7974
 - Suzuki Address - "LOVE² Hurricane!!" \<r\>\<g\>\<n\> - https://www.tsumino.com/Book/Info/10527
 - Taira Kosaka - "Zetsubou☆Rocker Room" \<r\>\<n\>\<d\> - https://www.tsumino.com/Book/Info/937
 - Takei Ooki
