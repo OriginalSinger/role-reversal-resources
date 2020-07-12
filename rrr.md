@@ -207,6 +207,9 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Boku no Kanojo wa Saikoudesu! \<r\> - <https://mangadex.org/title/24121>
 - Boku no nee-san \<g\>\<s\> - <https://mangadex.org/title/29856>
 - Cigarette and Cherry \<r\> - <https://mangadex.org/title/23181>
+- Elf Boyfriend & Boyish Girlfriend \<r\>\<m\> - <https://mangadex.org/title/37911>
+- Emperor and the Female Knight \<r\>\<k\> - <https://mangadex.org/title/42278>
+- Fujiyama-san wa Shishunki \<r\> - <https://mangadex.org/title/11189>
 - Gekkan Shoujo Nozaki-kun \<r\> - <https://mangadex.org/title/1880>
 - Girls of the Wild's \<r\>\<g\> - <https://mangadex.org/title/1021> (thanks to u/Shirotheskyrimnerd)
 - Gokushufudou: The Way of the House Husband \<r\> - <https://mangadex.org/title/23569>
@@ -220,8 +223,11 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Hyoutenka no Nukumori \<r\> - <https://mangadex.org/title/42000>
 - Ice Guy and the Cool Female Colleague \<r\> - <https://mangadex.org/title/35447>
 - Ijiranaide, Nagatoro-san \<d\> - <https://mangadex.org/title/22631>
+- Ikenai Candy Love \<r\> - <https://mangadex.org/title/3185>
 - Immortal Swordsman in The Reverse World \<r\> - <https://mangadex.org/title/45361>
 - It’s Not Meguro-san’s First Time - <https://mangadex.org/title/31233> (thanks to u/realFoobanana)
+- It's Okay to be Shy! \<r\> - <https://henamyung.tumblr.com/search/it%27s+okay+to+be+shy>
+- Just Give it to Me \<r\> - <https://www.tappytoon.com/series/giveittome/1>
 - Kanokon \<g\> - <https://mangadex.org/title/235> (thanks to u/FloatAway97)
 - Karakai Jouzu no Takagi-san - <https://mangadex.org/title/13108>
 - Kawaii Hito \<r\> - <https://mangadex.org/title/16050>
@@ -232,12 +238,15 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Kubo-san Doesn't Leave Me Be (a Mob) - <https://mangadex.org/title/42390>
 - Leona and the Werewolf - <https://www.webtoons.com/en/challenge/leona-the-werewolf-h/list?title_no=427339>
 - Looking Up to You \<r\> - <https://mangadex.org/title/32017>
+- Love at First Dress \<r\> - <https://www.webtoons.com/en/challenge/love-at-first-dress/list?title_no=357895&page=1>
 - Love is Still Too Early for Himeno-chan - <https://mangadex.org/title/29728>
+- Man Drowning in a Veil \<r\> - <https://mangadex.org/title/37075>
 - Mizutama Honey Boy \<r\> - <https://mangadex.org/title/14869>
 - Modokidomo \<d\> - <https://mangadex.org/title/22490>
 - Mutou and Satou \<r\> - <https://mangadex.org/title/36305>
 - My Husband Is A Housewife - <https://mangadex.org/title/38899>
 - Newman \<g\> - <https://www.webtoons.com/en/fantasy/newman/list?title_no=405&page=1> (thanks to u/S1ng1ngb1rd)
+- No Holes Barred \<r\> - <https://www.lezhin.com/en/comic/noholesbarred> (Note: **NSFW**)
 - No Filter x No Confidence \<r\> - <https://mangadex.org/title/47506>
 - No Matter What You Say, Furi-san is Scary. \<d\> - <https://mangadex.org/title/32911>
 - Oh! Lord Jesus \<r\> - <https://www.webtoons.com/en/romance/oh-holy/list?title_no=809> / <https://mangadex.org/title/16655>
@@ -245,6 +254,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Ore ga Fujoshi de Aitsu ga Yuriota de - <https://mangadex.org/title/20347> (thanks to u/Reymma)
 - Otomen \<r\> - <https://www.viz.com/otomen> (thanks to u/ESDEATH2710)
 - Omae Watashi no Koto Suki daro? \<r\> - <https://mangadex.org/title/31909>
+- Oresama Teacher \<r\>\<d\> - <https://mangadex.org/title/913>
 - Otonari Complex \<r\> - <https://mangadex.org/title/16976>
 - Otoyomegatari \<r\> - <https://mangadex.org/title/3409>
 - Palace Meidi \<r\> - <https://mangadex.org/title/19133>
@@ -252,6 +262,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - S Flower - <https://www.lezhin.com/en/comic/sflower_en> (thanks to u/ESDEATH2710)
 - Sakura-chan to Amane-kun \<c\> - <https://mangadex.org/title/25476>
 - Saotome Senshu, Hitakakusu - <https://mangadex.org/title/22078>
+- Scorching Romance \<r\> - <https://www.webtoons.com/en/romance/scorching-romance/list?title_no=1662&page=1>
 - Seishun Otome Banchou! - <https://mangadex.org/title/14320> (thanks to u/Reymma)
 - Senpai×Kouhai \<r\> - <https://mangadex.org/title/24153>
 - Sewayaki Kitsune no Senko-san \<g\> - <https://mangadex.org/title/22723> (thanks to u/FloatAway97)
@@ -260,14 +271,20 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Stalkers - <https://mangadex.org/title/32697>
 - Sunoharasou no Kanrinin-san \<g\>\<s\> - <https://mangadex.org/title/19779>
 - Sunstone \<g\> - <https://readcomiconline.to/Comic/Sunstone> (thanks to u/sensuallbdsm)
+- T-REX na Kanojo \<r\>\<m\> - <https://mangadex.org/title/15160>
 - Takane no Hana Nara Ochitekoi!! \<r\> - <https://mangadex.org/title/16443>
+- Tasogare Otome x Amnesia \<r\> - <https://mangadex.org/title/113>
 - That Girl Is Not Just Cute - <https://mangadex.org/title/33326>
+- That Adolescent Pig-Rascal Did Not Dream a Bunny-Girl Senpai \<r\> - <https://mangadex.org/title/19505> (Note: has anime adaptation)
 - The Duke of Death and His Black Maid - <https://mangadex.org/title/22422>
 - The girl I like forgot her glasses - <https://mangadex.org/title/32648>
 - The Girl with a Kansai Accent and the Pure Boy \<s\> - <https://mangadex.org/title/46433>
 - The Great Wife / My Wife is a Gangster \<r\>\<d\> - <https://merakiscans.com/manga/the-great-wife> (h/t [/u/mysteryguy74](https://reddit.com/r/RoleReversal/comments/eos4kj))
 - The Hero and the Priestess \<r\>\<g\> - <https://mangadex.org/title/33224>
+- The Ideal Sponger Life \<r\> - <https://mangadex.org/title/20719>
+- The Nameless Monster - The Spider, The Girl, and The Grotesque Murders \<r\>\<m\> - <https://mangadex.org/title/39498>
 - The Sensual M - <https://manhuascan.com/manga-the-sensual-m.html>
+- The Sock Monster \<r\> - <https://www.tappytoon.com/series/sockmonster/1>
 - The Story of an Onee-San Who Wants to Keep a High School Boy. \<r\>\<g\> - <https://mangadex.org/title/25264>
 - The Story Of The Girl I Like Being Too Ikemen \<r\> - <https://hatigarmscanz.net/comics/8275-the-story-of-the-girl-i-like-being-too-ikemen>
 - The World of Moral Reversal \<r\> - <https://mangadex.org/title/20978>
@@ -283,6 +300,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Witch Craft Works \<r\> - <https://mangadex.org/title/46>
 - Yancha Gal no Anjou-san \<d\> - <https://mangadex.org/title/26630> (thanks to u/Naizuri77)
 - Yankee Shota to Otaku Onee-san \<s\>\<d\> - <https://mangadex.org/title/22077>
+- You Are Obscene, My Queen \<r\> - <https://mangadex.org/title/7200> (Note: **NSFW**)
 - Yofukashi no Uta - <https://mangadex.org/title/40969>
 - Yuuutsu to Succubus-san \<g\> - <https://mangadex.org/title/21423> (thanks to u/FloatAway97)
 
@@ -291,13 +309,16 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 (See notes for why some of these links are 404-ed). If you get a 404, check if it’s on <https://hentai.cafe/>. If it is, it would really be a great help if you updated the 404’d links with the hentai.cafe links. Thanks.
 
 - Aduma Ren - "Force Romance" \<r\>\<n\> - <https://www.tsumino.com/Book/Info/6587>
+- Aji Ponntarou - "Offence Reversal! The Delinquent and Me, as a Woman" \<r\> - <https://nhentai.net/g/97941>
 - Amahara
   - “The World of Moral Reversal” (series) \<r\> - <https://mangadex.org/title/33149>
+- Asahiru Yuu - "A Book About Being Teased" (THE iDOLM@STER: Shiny Colors) \<r\> - <https://nhentai.net/g/282301>
 - Ayane - "Seed Potato Fair → Rapid Planting" \<r\>\<g\>\<n\> - <https://hentai.cafe/hc.fyi/1322>
 - Batsu - "Over Work Love" \<g\> - <https://www.tsumino.com/Book/Info/39923>
 - Benimura Karu - "I Want My Reward!" \<r\>\<g\> - <https://hentainexus.com/view/4829> (h/t [/u/qwerqertsadafcw](https://reddit.com/r/RoleReversal/comments/gi0sre))
 - Blmanian - "Dark Service Committee" \<r\>\<d\> - <https://nhentai.net/g/105637/>
 - bobobo - "Elder Sister-in-Law's Milk!" \<r\>\<n\> - <https://www.tsumino.com/Book/Info/25756>
+- Bonchi - "Strap-on Girl and Bitch Boy" \<r\>\<p\> - <https://nhentai.net/g/272937>
 - Butcha U - "An X Mada Preparatory Issue" \<g\> - <https://www.tsumino.com/Book/Info/20300>
 - Coelacanth - "Mister Mistake" \<r\>\<g\> - <https://www.tsumino.com/Book/Info/20767>
 - Dibi
@@ -310,6 +331,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
   - "Oneshota Ero Manga" \<r\>\<n\>\<m\>\<s\> - <https://www.tsumino.com/Book/Info/18034>
   - "One Shota Ero Manga Kouhen \~Sensei no Ichirinzashi\~" \<r\>\<g\>\<m\>\<s\> - <https://www.tsumino.com/Book/Info/22687>
   - "Run Away" \<g\>\<s\> - ~~<https://www.tsumino.com/Book/Info/33835>~~
+  - "Sexual Addiction" \<r\>\<p\> - <https://nhentai.net/g/267639>
   - "The Day It Began" \<r\>\<s\> - ~~<https://www.tsumino.com/Book/Info/34378>~~
   - "The Endless Days" \<r\> - <https://www.tsumino.com/Book/Info/38278>
   - "The Elf Village Council Official Sexual Extraction Manual" rns- <https://www.tsumino.com/Book/Info/28072>
@@ -333,6 +355,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
   - "Misbehavior at the Bath House" \<g\>\<n\> - ~~<https://www.tsumino.com/Book/Info/42452>~~
   - "Shasei Taikai!" \<r\>\<n\>\<s\> - <https://www.tsumino.com/Book/Info/17950>
   - "Skirt Mekuri no Batsu!" \<r\>\<n\>\<s\> - <https://www.tsumino.com/Book/Info/5992>
+- Gyuutan Teishoku e no Koi - "Story of the Boy Who Gets Assaulted on the Train to School by a Girl from His Class" \<r\>\<n\>\<m\>\<p\> - <https://nhentai.net/g/310455>
 - hal - "M no Honkai" \<r\>\<n\> - <https://www.tsumino.com/Book/Info/19130>
 - Hamao
   - "A Kiss on the Scarlet Rose" \<r\>\<n\> - <https://www.tsumino.com/Book/Info/8497>
@@ -341,8 +364,8 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Henkuma - "The Perverted Lady's Circumstances" \<g\> - <https://www.tsumino.com/Book/Info/2137>
 - Hiroe Rei | Red Bear - "GM Rimix" \<r\>\<n\> - <https://www.tsumino.com/Book/Info/6642>
 - Himawari no Tane
-- OneBoku Torotoro Numa Sex \<g\>\<s\> - <https://www.tsumino.com/Book/Info/29535>
-- Eaten Up by the Bookworm Girl \<g\> - <https://nhentai.net/g/219582/>
+  - "OneBoku Torotoro Numa Sex" \<g\>\<s\> - <https://nhentai.net/g/190294>
+  - "Eaten Up by the Bookworm Girl" \<g\>\<p\> - <https://nhentai.net/g/219582>
 - Hisasi
   - "A Small Stream" \<s\> - <https://www.tsumino.com/Book/Info/8495>
   - "Love to You" \<g\> - <https://www.tsumino.com/Book/Info/10906>
@@ -351,6 +374,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Igumo Kusu
   - "A Young Lady And Her Little Toy" \<g\> - <https://www.tsumino.com/Book/Info/9506>
   - "Superior Cake" \<r\>\<n\> - <https://www.tsumino.com/Book/Info/9500>
+- Ikeshita Maue - "Haduki Run Wild" \<r\>\<d\> - <https://nhentai.net/g/213583/>
 - Ikezaki Misa - "Demon Pair" \<r\>\<d\> - <https://www.tsumino.com/Book/Info/23342>
 - Isao - "Grandline Chronicle" \<r\>\<n\> - <https://www.tsumino.com/Book/Info/16123>
 - Itou Eight - "Moto yan Onna to Shatei Otoko" \<r\>\<n\> - <https://www.tsumino.com/Book/Info/27899>
@@ -360,6 +384,8 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - JINMI - “S Flower” - <https://www.lezhin.com/en/comic/sflower_en> (thanks to anon at the /gfd/ thread at /h/)
 - Karma Tatsurou - "Public Masturbation" \<r\>\<n\>\<c\> - ~~<https://www.tsumino.com/Book/Info/33851>~~
 - Ketsuyuki Tamon - "Amayome Chance!" \<r\>\<g\> - ~~<https://www.tsumino.com/Book/Info/37542>~~
+- Kim Jong Geon - "No Holes Barred" (series) \<r\> - <https://www.lezhin.com/en/comic/noholesbarred>
+- Komagata - "Amayaka Shishou Zenpen" (Fate/Grand Order) - <https://nhentai.net/g/312349>
 - Kosuke Haruhito - "Shake Love" \<g\> - <https://www.tsumino.com/Book/Info/21917>
 - Macaroni and Cheese
   - "A Story of Remilia-sama Reverse-Raping a Boy" \<n\>\<s\> - <https://www.tsumino.com/Book/Info/3330>
@@ -367,16 +393,20 @@ I compiled these into an MDList. It’s better to browse there since you can dir
   - "The Tale of Patchouli's Reverse Rape of a Young Boy" \<n\>\<s\> - <https://www.tsumino.com/Book/Info/961>
   - "The Tale of Yuuka Kazami's Reverse Rape of a Young Boy" \<n\>\<s\> - <https://www.tsumino.com/Book/Info/2039>
 - Makuro - "Sadistic Sister" \<r\>\<g\>\<n\>\<d\>\<s\> - <https://www.tsumino.com/Book/Info/17996>
+- Methonium - "Yoru no Champion" \<r\> - <https://nhentai.net/g/125431>
 - Mikuni Mizuki - "Encounter" \<r\>\<d\> - <https://www.tsumino.com/Book/Info/41331>
 - Minagiri - "Celebratory Drinks" \<r\>\<g\> - ~~<https://www.tsumino.com/Book/Info/43801>~~
 - Miyamoto Issa
   - "Henspecked Encouragement" \<r\>\<n\>\<d\> - <https://hentai.cafe/hc.fyi/5503>
   - “Tender Master” \<r\>\<s\> - <https://nhentai.net/g/292137/>
+  - "Advice for the Whipped" \<r\>\<s\> - <https://nhentai.net/g/184840>
+- Miyashita Miki, Mochizuki Nana - "Inugami" (Inuyasha) \<r\> - <https://nhentai.net/g/1293>
 - Momoduki Suzu - "Chidori Isn't Going Home" \<r\>\<g\> - ~~<https://www.tsumino.com/Book/Info/36027>~~
 - Morikoke - "Activities for the Sake of Hyrule’s Future!" \<r\>\<g\> - <https://www.tsumino.com/Book/Info/36166>
 - Napata
   - "Good Luck Charm" \<r\>\<g\> - ~~<https://www.tsumino.com/Book/Info/41695>~~
   - "Nanako-san" \<r\>\<g\>\<s\> - <https://www.tsumino.com/Book/Info/4652>
+- Nakamura Regura - "Seidoku no Ato ni..." (Fate/Grand Order) \<r\> - <https://nhentai.net/g/275387>
 - Nakata Modem
   - "Enjoying the Train" \<r\>\<s\> - <https://www.tsumino.com/Book/Info/5611>
   - "For A Friend" \<r\>\<n\> - <https://www.tsumino.com/Book/Info/4570>
@@ -439,16 +469,18 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Takemasa Takeshi
   - "Escort" \<r\> - <https://www.tsumino.com/Book/Info/22547>
   - "Two Pieces" \<g\> - <https://www.tsumino.com/Book/Info/22862>
+- Takemura Sesshu - "Take On Me" \<r\> - <https://nhentai.net/g/36549>
 - Tamagoro - "Young Men Corruption Committee" \<g\> - <https://www.tsumino.com/Book/Info/21019>
 - Taneno Nakami
   - "Eaten Up by the Bookworm Girl" \<r\>\<g\> - <https://www.tsumino.com/Book/Info/36177>
   - "Consumed By My Sexy Cousin" \<g\>\<s\> - <https://www.tsumino.com/Book/Info/29535>
 - Tataru - "Ganbare Bijutsubu Danshi Buin!" \<r\>\<s\> - <https://www.tsumino.com/Book/Info/39388>
 - Tokiwa Midori - "Nepenthes" \<r\>\<n\> - <https://www.tsumino.com/Book/Info/39053>
+- Tomotsuka Haruomi - "Dragon Rage" \<r\> - <https://nhentai.net/g/89489/>
 - Uo Denim - "Boku no Oshiego wa Bitch Gal" - ~~<https://www.tsumino.com/Book/Info/37542>~~
 - WiLDARUBA
   - "little BIG spoon" \<g\> - <https://imgur.com/a/OOv8k>
-- Woo Yunhee - "Sadistic Beauty" rg
+- Woo Yunhee - "Sadistic Beauty" \<r\>\<g\>
   - <https://exhentai.org/g/1118541/0a54702892/> (english translated)
   - <https://bomtoon.com/comic/ep_list/sadisticbt> (continuation, untranslated)
 - Yomotsuka Tsukasa
@@ -524,6 +556,14 @@ I compiled these into an MDList. It’s better to browse there since you can dir
   - Old CrazyRain's Stories - <https://pastebin.com/z3CWqhnG>
   - Reverse Gender Role Equestria (RGRE) - <https://www.fimfiction.net/group/212801/reverse-gender-role-equestria-rgre>
 - Yandere/Obsessive Love Resources - <https://docs.google.com/document/d/1rfm8knOG6iiJ8xyLAltVvcGNdRimVKtGqHMiI5O0cLE/edit>
+- TVTropes "Gender-Inverted Trope" - <https://tvtropes.org/pmwiki/pmwiki.php/Main/GenderInvertedTrope> (h/t [/u/Blueter](https://www.reddit.com/r/RoleReversal/comments/gwat30/you_heard_her_put_em_in_the_bag/fsu6wgt/))
+- MangaUpdates Tags (h/t [/u/Blueter](https://www.reddit.com/r/RoleReversal/comments/gwat30/you_heard_her_put_em_in_the_bag/fsu6wgt/))
+  - "Role Reversal" - <https://www.mangaupdates.com/series.html?perpage=100&category=Role+Reversal&orderby=rating>
+  - "Reversed Gender Roles" - <https://www.mangaupdates.com/series.html?perpage=100&category=Reversed+Gender+Roles&orderby=rating>
+  - "Reverse Harem" - <https://www.mangaupdates.com/series.html?orderby=rating&category=Reverse+Harem>
+  - "Reverse Netorare" - <https://www.mangaupdates.com/series.html?orderby=rating&category=Reverse+Netorare>
+  - "Reverse Rape" - <https://www.mangaupdates.com/series.html?orderby=rating&category=Reverse+Rape>
+  - "Female Dominance" - <https://www.mangaupdates.com/series.html?perpage=100&category=Female+Dominance&orderby=rating>
 
 ## Notes
 
