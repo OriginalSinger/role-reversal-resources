@@ -30,6 +30,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - \<s\> - shota
 - \<c\> - crossdressing
 - \<p\> - pegging
+- ~~strikethrough~~ - page is 404'd
 
 ## Writings
 
@@ -56,7 +57,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - bobanon - <https://pastebin.com/u/bobanon>
   - "The Big Bad Wolf" \<r\>\<n\>\<m\> - <https://pastebin.com/RXYWAw18>
   - "The Big Bad Wolf 2" \<r\>\<n\>\<m\> - <https://pastebin.com/eeZ9ZdKF>
-- CampGreen \<r\>\<n\>\<m\> - <https://archiveofourown.org/users/CampGreen/pseuds/CampGreen>
+- ~~CampGreen \<r\>\<n\>\<m\> - <https://archiveofourown.org/users/CampGreen/pseuds/CampGreen>~~ (no archives)
 - cabin_writer - <https://pastebin.com/u/cabin_writer>
   - "Fever Dreams" \<g\>\<n\>\<s\> - <https://pastebin.com/8BUtvNeC>
 - captainhab - <https://pastebin.com/u/captainahab>
@@ -75,7 +76,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - decadentbynature
   - "Monster's Kiss" \<r\>\<n\>\<m\> - <https://archiveofourown.org/works/14941940/chapters/34620338>
 - Dorine54
-  - "Altered Genesis" (series) \<r\> - <https://www.literotica.com/s/altered-genesis-ch-01>
+  - "Altered Genesis" (series) \<r\> - <https://web.archive.org/web/20190723133145/https://www.literotica.com/s/altered-genesis-ch-01>
 - fapworthydiction - <https://www.hentai-foundry.com/stories/user/fapworthyDiction>
   - "Diary of a fledgling Dominatrix" - <https://www.hentai-foundry.com/stories/user/fapworthyDiction/21270/Diary-of-fledgling-Dominatrix>
   - "Chi-soo, That girl from chessclub" - <https://www.hentai-foundry.com/stories/user/fapworthyDiction/20964/Chi-Soo-That-girl-from-chessclub>
@@ -135,7 +136,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "My manager is my mistress (non lewd)" \<g\> - <https://pastebin.com/TJAvFqgf>
   - "I don't bite" \<g\> - <https://pastebin.com/hWmZEyjb>
 - Silent_II - <https://drive.google.com/drive/folders/0BzL7aw4ZKvmNaEIxSWFkblpHbUE>
-- smolbrit - <https://web.archive.org/web/20160922043824/https://pastebin.com:80/u/Smolbrit>
+- smolbrit - <https://web.archive.org/web/20160922043824/http://pastebin.com/u/Smolbrit>
 - snekguy \<r\>\<g\>\<n\>\<m\> - <https://www.patreon.com/Snekguy>
   - Everything he's ever written, with tags and synopses - <https://pastebin.com/dHd9iFCN>
 - SnoopingDetective \<r\> - <https://www.deviantart.com/snoopingdetective>
@@ -152,27 +153,28 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "Monsterboy Quest" \<r\>\<g\>\<k\> - <https://archiveofourown.org/works/7987012>
   - "The Jabberwock's Treasure" \<r\>\<g\>\<n\> - <https://archiveofourown.org/works/15160976>
 - sanguia - <https://archiveofourown.org/users/sanguia/pseuds/sanguia>
-  - “Oh, but Conformity is Such a Dull Routine!” \<r\>\<g\> - <https://archiveofourown.org/works/20559770>
-  - “A Blind Woman and an Elephant” - <https://archiveofourown.org/works/21623896>
+  - Note: sanguia orphaned a lot of their past works, and deleted "Oh, but Conformity...". The other works should still be found in AO3, if you know the titles
+  - ~~“Oh, but Conformity is Such a Dull Routine!” \<r\>\<g\> - <https://archiveofourown.org/works/20559770>~~ (no archives)
+  - “A Blind Woman and an Elephant” - <https://archiveofourown.org/works/24484072>
 - Tak138 - <https://archiveofourown.org/users/Tak138/pseuds/Tak138>
   - “Sapphire; Color of the Sea” - <https://archiveofourown.org/works/15984947>
   - “Things Expected and Not” - <https://archiveofourown.org/works/21815479>
 - Tommykaine
   - "Please don't take my sunshine" \<r\> - <https://archiveofourown.org/works/14004846> (Focuses on M/M, but has F/M elements)
-- The Anon and His Kitten \<r\> - <https://anonandkitten.blogspot.com/(recommended> by someone I can't find right now)
+- The Anon and His Kitten \<r\> - <https://anonandkitten.blogspot.com/> (recommended by someone I can't find right now)
   - "The Anon and His Kitten" \<r\> - <https://anonandkitten.blogspot.com/2011/09/while-i-sleep.html>
 - Twiddlesticks (Shovel Knight Works) \<r\> - <https://archiveofourown.org/users/Twiddlesticks/pseuds/Twiddlesticks/works?fandom_id=2991845>
 - Wen Spencer
   - “A Brother’s Price” \<r\> - <https://www.amazon.com/Brothers-Price-Wen-Spencer-ebook/dp/B000OIZU1M>
 - WokCano
-  - <https://www.reddit.com/r/WritingPrompts/comments/biqtjl/wp_it_is_customary_to_propose_a_marriage_by/em2jcyc/>
+  - <https://www.reddit.com/r/WritingPrompts/comments/biqtjl/wp_it_is_customary_to_propose_a_marriage_by/em2jcyc/>brave check specific cookies
 - Wattpad (thanks to u/ESDEATH2710)
   - iamananimeniac \<r\>\<g\> - "CAN'T BE TAMED" - <https://www.wattpad.com/story/144097249>
-  - makixuxi - "Mommy" \<r\>\<g\> - <https://www.wattpad.com/story/159210013>
-  - Artsy-Gal - "Ties" \<r\>\<g\> - <https://www.wattpad.com/story/166453835>
+  - ~~makixuxi - "Mommy" \<r\>\<g\> - <https://www.wattpad.com/story/159210013>~~
+  - ~~Artsy-Gal - "Ties" \<r\>\<g\> - <https://www.wattpad.com/story/166453835>~~
   - TheAngryAlphyn - "Thrice Allured" \<r\>\<g\> - <https://www.wattpad.com/story/101914617>
   - strictlygentle - "Babyboy [s.m] \<r\>\<g\> - <https://www.wattpad.com/story/142114962>
-  - RoseNeighborhood - "The Eve" \<r\>\<g\> - <https://www.wattpad.com/story/141297016>
+  - ~~RoseNeighborhood - "The Eve" \<r\>\<g\> - <https://www.wattpad.com/story/141297016>~~
   - strictlygentle - "I've got you" \<r\>\<g\> - <https://www.wattpad.com/story/141557018>
   - hoeofyoon - "Mommy's Playtoy" \<r\>\<g\> - <https://www.wattpad.com/story/153270907>
   - hoeofyoon - "Bet? Bet" \<r\>\<g\> - <https://www.wattpad.com/story/155193857-bet-bet-j-jk-mommy-kink>
@@ -180,7 +182,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
 
 ## Artworks (not comics/manga)
 
-- tayroad \<r\>\<g\> - <https://www.deviantart.com/tayroad/gallery/> (thanks to u/Solext)
+- tayroad \<r\>\<g\> - <https://www.pixiv.net/en/users/16629528> (thanks to u/Solext)
 - P-Reavz \<r\>\<g\>\<c\> - <https://www.pixiv.net/member.php?id=1988365>, <https://twitter.com/P_Reavz>
 - Wokada - <https://www.gelbooru.com/index.php?page=post&s=list&tags=wokada>
 
@@ -241,7 +243,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Oh! Lord Jesus \<r\> - <https://www.webtoons.com/en/romance/oh-holy/list?title_no=809> / <https://mangadex.org/title/16655>
 - Ojou-sama ga Mamorasete Kurenai \<r\> - <https://mangadex.org/title/33400>
 - Ore ga Fujoshi de Aitsu ga Yuriota de - <https://mangadex.org/title/20347> (thanks to u/Reymma)
-- Otomen \<r\> - <https://mangarock.com/manga/mrs-serie-188326> (thanks to u/ESDEATH2710)
+- Otomen \<r\> - <https://www.viz.com/otomen> (thanks to u/ESDEATH2710)
 - Omae Watashi no Koto Suki daro? \<r\> - <https://mangadex.org/title/31909>
 - Otonari Complex \<r\> - <https://mangadex.org/title/16976>
 - Otoyomegatari \<r\> - <https://mangadex.org/title/3409>
@@ -265,7 +267,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - The Girl with a Kansai Accent and the Pure Boy \<s\> - <https://mangadex.org/title/46433>
 - The Great Wife / My Wife is a Gangster \<r\>\<d\> - <https://merakiscans.com/manga/the-great-wife> (h/t [/u/mysteryguy74](https://reddit.com/r/RoleReversal/comments/eos4kj))
 - The Hero and the Priestess \<r\>\<g\> - <https://mangadex.org/title/33224>
-- The Sensual M - <https://www.spottoon.com/book/41/147/THE_SENSUAL_M_S1>
+- The Sensual M - <https://manhuascan.com/manga-the-sensual-m.html>
 - The Story of an Onee-San Who Wants to Keep a High School Boy. \<r\>\<g\> - <https://mangadex.org/title/25264>
 - The Story Of The Girl I Like Being Too Ikemen \<r\> - <https://hatigarmscanz.net/comics/8275-the-story-of-the-girl-i-like-being-too-ikemen>
 - The World of Moral Reversal \<r\> - <https://mangadex.org/title/20978>
@@ -302,18 +304,18 @@ I compiled these into an MDList. It’s better to browse there since you can dir
   - "Being a Prison Guard at a Female Prison is My Calling!" \<r\>\<g\>\<n\>\<s\>- <https://www.tsumino.com/Book/Info/26525>
   - "During Mating and Training" \<r\>\<m\>\<s\> - <https://www.tsumino.com/Book/Info/26442>
   - "Inspiration Assistance" \<r\>\<n\>\<s\> - <https://hentai.cafe/hc.fyi/7699>
-  - "Interracial Sex" \<r\>\<n\>\<m\>\<s\> - <https://www.tsumino.com/Book/Info/30257>
-  - "Just Like in Doujinshi" \<r\>\<s\> - <https://www.tsumino.com/Book/Info/40136>
+  - "Interracial Sex" \<r\>\<n\>\<m\>\<s\> - ~~<https://www.tsumino.com/Book/Info/30257>~~
+  - "Just Like in Doujinshi" \<r\>\<s\> - ~~<https://www.tsumino.com/Book/Info/40136>~~
   - "Kemo Ane x Shotaero Manga 2 Zenpen" \<r\>\<m\>\<s\> - <https://www.tsumino.com/Book/Info/20564>
   - "Oneshota Ero Manga" \<r\>\<n\>\<m\>\<s\> - <https://www.tsumino.com/Book/Info/18034>
   - "One Shota Ero Manga Kouhen \~Sensei no Ichirinzashi\~" \<r\>\<g\>\<m\>\<s\> - <https://www.tsumino.com/Book/Info/22687>
-  - "Run Away" \<g\>\<s\> - <https://www.tsumino.com/Book/Info/33835>
-  - "The Day It Began" \<r\>\<s\> - <https://www.tsumino.com/Book/Info/34378>
+  - "Run Away" \<g\>\<s\> - ~~<https://www.tsumino.com/Book/Info/33835>~~
+  - "The Day It Began" \<r\>\<s\> - ~~<https://www.tsumino.com/Book/Info/34378>~~
   - "The Endless Days" \<r\> - <https://www.tsumino.com/Book/Info/38278>
   - "The Elf Village Council Official Sexual Extraction Manual" rns- <https://www.tsumino.com/Book/Info/28072>
-  - "The Night She Touched Me" \<r\>\<s\>\<c\> - <https://www.tsumino.com/Book/Info/27535>
-  - "The Warrior Princess's Recreation Room" \<r\>\<n\>\<k\>\<s\> - <https://www.tsumino.com/Book/Info/33836>
-- DISTANCE - "Devil Sisters!" \<r\>\<n\> - <https://www.tsumino.com/Book/Info/28453>
+  - "The Night She Touched Me" \<r\>\<s\>\<c\> - ~~<https://www.tsumino.com/Book/Info/27535>~~
+  - "The Warrior Princess's Recreation Room" \<r\>\<n\>\<k\>\<s\> - ~~<https://www.tsumino.com/Book/Info/33836>~~
+- DISTANCE - "Devil Sisters!" \<r\>\<n\> - ~~<https://www.tsumino.com/Book/Info/28453>~~
 - Dr.P
   - "Senpai Hunting" \<g\> - <https://www.tsumino.com/Book/Info/27951>
   - "Senpai Heating" - <https://www.tsumino.com/Book/Info/30545>
@@ -328,7 +330,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
   - "Dissection Victim!" \<r\>\<n\>\<s\> - <https://www.tsumino.com/Book/Info/3353>
   - "Itai Ko Tondeke!! \~Chuuni-kun Kousei Shiyo\~" \<r\>\<n\>\<s\> - <https://www.tsumino.com/Book/Info/17948>
   - "Kimi no Iya Garu Kao ga Mitai!!" \<r\>\<n\>\<c\> - <https://www.tsumino.com/Book/Info/17951>
-  - "Misbehavior at the Bath House" \<g\>\<n\> - <https://www.tsumino.com/Book/Info/42452>
+  - "Misbehavior at the Bath House" \<g\>\<n\> - ~~<https://www.tsumino.com/Book/Info/42452>~~
   - "Shasei Taikai!" \<r\>\<n\>\<s\> - <https://www.tsumino.com/Book/Info/17950>
   - "Skirt Mekuri no Batsu!" \<r\>\<n\>\<s\> - <https://www.tsumino.com/Book/Info/5992>
 - hal - "M no Honkai" \<r\>\<n\> - <https://www.tsumino.com/Book/Info/19130>
@@ -356,8 +358,8 @@ I compiled these into an MDList. It’s better to browse there since you can dir
   - “Leave it to Kagari-san” (Witch Craft Works) \<s\> - <https://nhentai.net/g/68618/>
   - “What did I do Kagari-san” (Witch Craft Works) \<s\> - <https://nhentai.net/g/101232/>
 - JINMI - “S Flower” - <https://www.lezhin.com/en/comic/sflower_en> (thanks to anon at the /gfd/ thread at /h/)
-- Karma Tatsurou - "Public Masturbation" \<r\>\<n\>\<c\> - <https://www.tsumino.com/Book/Info/33851>
-- Ketsuyuki Tamon - "Amayome Chance!" \<r\>\<g\> - <https://www.tsumino.com/Book/Info/37542>
+- Karma Tatsurou - "Public Masturbation" \<r\>\<n\>\<c\> - ~~<https://www.tsumino.com/Book/Info/33851>~~
+- Ketsuyuki Tamon - "Amayome Chance!" \<r\>\<g\> - ~~<https://www.tsumino.com/Book/Info/37542>~~
 - Kosuke Haruhito - "Shake Love" \<g\> - <https://www.tsumino.com/Book/Info/21917>
 - Macaroni and Cheese
   - "A Story of Remilia-sama Reverse-Raping a Boy" \<n\>\<s\> - <https://www.tsumino.com/Book/Info/3330>
@@ -366,14 +368,14 @@ I compiled these into an MDList. It’s better to browse there since you can dir
   - "The Tale of Yuuka Kazami's Reverse Rape of a Young Boy" \<n\>\<s\> - <https://www.tsumino.com/Book/Info/2039>
 - Makuro - "Sadistic Sister" \<r\>\<g\>\<n\>\<d\>\<s\> - <https://www.tsumino.com/Book/Info/17996>
 - Mikuni Mizuki - "Encounter" \<r\>\<d\> - <https://www.tsumino.com/Book/Info/41331>
-- Minagiri - "Celebratory Drinks" \<r\>\<g\> - <https://www.tsumino.com/Book/Info/43801>
+- Minagiri - "Celebratory Drinks" \<r\>\<g\> - ~~<https://www.tsumino.com/Book/Info/43801>~~
 - Miyamoto Issa
   - "Henspecked Encouragement" \<r\>\<n\>\<d\> - <https://hentai.cafe/hc.fyi/5503>
   - “Tender Master” \<r\>\<s\> - <https://nhentai.net/g/292137/>
-- Momoduki Suzu - "Chidori Isn't Going Home" \<r\>\<g\> - <https://www.tsumino.com/Book/Info/36027>
+- Momoduki Suzu - "Chidori Isn't Going Home" \<r\>\<g\> - ~~<https://www.tsumino.com/Book/Info/36027>~~
 - Morikoke - "Activities for the Sake of Hyrule’s Future!" \<r\>\<g\> - <https://www.tsumino.com/Book/Info/36166>
 - Napata
-  - "Good Luck Charm" \<r\>\<g\> - <https://www.tsumino.com/Book/Info/41695>
+  - "Good Luck Charm" \<r\>\<g\> - ~~<https://www.tsumino.com/Book/Info/41695>~~
   - "Nanako-san" \<r\>\<g\>\<s\> - <https://www.tsumino.com/Book/Info/4652>
 - Nakata Modem
   - "Enjoying the Train" \<r\>\<s\> - <https://www.tsumino.com/Book/Info/5611>
@@ -405,14 +407,14 @@ I compiled these into an MDList. It’s better to browse there since you can dir
   - "Magic Patch" \<r\>\<g\>\<c\> - <https://www.pixiv.net/member_illust.php?mode=manga&illust_id=58269836>
   - "Prince Princess Dragon" \<r\> - <https://www.pixiv.net/member_illust.php?mode=medium&illust_id=62989710>
 - Raita - “Sasaki Rapes Yoshida” (Azumanga Daioh) \<n\> - <https://e-hentai.org/g/26326/b31b58f53e/>
-- Rico - "The Lady's Soliloquy" \<r\>\<n\> - <https://www.tsumino.com/Book/Info/38971>
+- Rico - "The Lady's Soliloquy" \<r\>\<n\> - ~~<https://www.tsumino.com/Book/Info/38971>~~
 - Ryohka - "The skillful teaser Nagatoro-san" \<r\>\<d\> - <https://www.tsumino.com/Book/Info/43849>
 - Sena Youtarou
   - "The Witch, The Succubus, And The Cute Apprentice Ch. 1-10 & Extra" - <https://nhentai.net/g/104984/>
 - Shinooka Homare - "Little Brother, You Are My Ottoman" \<r\>\<n\> - <https://www.tsumino.com/Book/Info/19560>
 - Shiwasu no Okina - "Please! Freeze! Please!" \<r\>\<g\> - <https://mangadex.org/title/45993>
 - SOLOPIPB
-  - "I'm Not Waiting Anymore" \<r\>\<n\> - <https://www.tsumino.com/Book/Info/29017>
+  - "I'm Not Waiting Anymore" \<r\>\<n\> - ~~<https://www.tsumino.com/Book/Info/29017>~~
   - "Koishirete Uwabami!" \<r\>\<g\>\<m\> - <https://www.tsumino.com/Book/Info/26138>
   - "Koidorete Uwabami!!" \<r\>\<g\>\<m\> - <https://www.tsumino.com/Book/Info/31597>
   - "Layers of White" \<r\>\<g\>\<m\> - <https://www.tsumino.com/Book/Info/1527>
@@ -420,7 +422,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
   - "Shiragasane (Darning) -Zen/Tan-" \<g\>\<m\> - <https://www.tsumino.com/Book/Info/22510>
   - "Shiragasane -bo-" \<r\>\<g\>\<n\>\<m\>\<s\> - <https://www.tsumino.com/Book/Info/37081>
   - "Shiragasane -Tsuzure-" \<r\>\<g\>\<n\>\<m\> - <https://www.tsumino.com/entry/45971>
-  - "Normal Relationship" \<r\>\<g\>\<n\>\<s\> - <https://www.tsumino.com/Book/Info/20323>
+  - "Normal Relationship" \<r\>\<g\>\<n\>\<s\> - ~~<https://www.tsumino.com/Book/Info/20323>~~
 - Survival Knife
   - "Schwarz Weiß" \<r\>\<n\>\<k\>\<s\> - <https://hentainexus.com/view/6012>
   - "Schwarz Weiß \~Reverse\~" \<r\>\<g\>\<n\>\<m\>\<k\>\<s\>\<c\> <https://hentainexus.com/view/7974>
@@ -443,7 +445,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
   - "Consumed By My Sexy Cousin" \<g\>\<s\> - <https://www.tsumino.com/Book/Info/29535>
 - Tataru - "Ganbare Bijutsubu Danshi Buin!" \<r\>\<s\> - <https://www.tsumino.com/Book/Info/39388>
 - Tokiwa Midori - "Nepenthes" \<r\>\<n\> - <https://www.tsumino.com/Book/Info/39053>
-- Uo Denim - "Boku no Oshiego wa Bitch Gal" - <https://www.tsumino.com/Book/Info/37542>
+- Uo Denim - "Boku no Oshiego wa Bitch Gal" - ~~<https://www.tsumino.com/Book/Info/37542>~~
 - WiLDARUBA
   - "little BIG spoon" \<g\> - <https://imgur.com/a/OOv8k>
 - Woo Yunhee - "Sadistic Beauty" rg
@@ -466,11 +468,11 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Rusfemanon \<r\>\<g\> - <https://soundgasm.net/u/Rusfemanon>
 - new_effect \<r\>\<g\>\<k\> -  <https://soundgasm.net/u/new_effect/>
 - A Mechwarrior’s Dilemma \<g\>\<k\> - Script Text - <https://pastebin.com/T1eCTXNC>
-  - Audio Performance by u/playfulmoonlight (she does quite a bit of r and g content) - <https://www.re...ilemma_scifi/>
-  - Audio Performance by u/destinyblade - <https://www.re...ilemma_scifi/>
-  - Audio Performance by u/RubySeaWitch - <https://www.re...t_fill_scifi/>
-- The Bitch Queen and her Pup Series \<r\>\<g\>\<k\> - Script Texts - <https://pastebin.com/efFA4mmJ> and <https://pasteb....com/AkCUQb6C>
-  - Both fills by u/PlayfulMoonlight - <https://www.re..._script_fill/> and <https://www.re...t_rescue_her/>
+  - Audio Performance by u/playfulmoonlight (she does quite a bit of r and g content) - <https://www.reddit.com/r/gonewildaudio/comments/ae0uwa>
+  - Audio Performance by u/destinyblade - <https://www.reddit.com/r/gonewildaudio/comments/agljt5>
+  - Audio Performance by u/RubySeaWitch - <https://www.reddit.com/r/gonewildaudio/comments/ajw1ry>
+- The Bitch Queen and her Pup Series \<r\>\<g\>\<k\> - Script Texts - <https://pastebin.com/efFA4mmJ> and <https://pastebin.com/AkCUQb6C>
+  - Both fills by u/PlayfulMoonlight - <https://www.reddit.com/r/gonewildaudio/comments/9qfmsj> and <https://www.reddit.com/r/gonewildaudio/comments/9xhqa9>
 - von-scriptenstein - <https://www.reddit.com/user/von-scriptenstein/>, <https://pastebin.com/u/von-scriptenstein>
   - Delinquent Girl (series)
     - “Delinquent Girl 1: Queen” (Script) \<r\>\<d\>\<n\> - <https://www.reddit.com/r/gonewildaudio/comments/cu80iy/>
@@ -537,37 +539,35 @@ Also, someone should probably scrape/archive the (text) stories in this list sin
 
 ### OP template for /gfd/ & /rr/ threads at 4chan (/d/ and /h/)
 
-```
-/gfd/ & /rr/ Gentle Femdom and Role-Reversal General
+    /gfd/ & /rr/ Gentle Femdom and Role Reversal General
 
-ITT:
->related hentai
->greentext
->monster girls
->general lewdness
->doujinshi recommendations
->anime/manga recommendations
->preferably recommendations that are on-topic
->cuteposting
->vocaroos
->no futa/yuri, go make your own thread
+    ITT:
+    >related hentai
+    >greentext
+    >monster girls
+    >general lewdness
+    >doujinshi recommendations
+    >anime/manga recommendations
+    >preferably recommendations that are on-topic
+    >cuteposting
+    >vocaroos
+    >no futa/yuri, go make your own thread
 
-manga, anime, hentai, writefaggotry recommendations/general /gfd/ & /rr/ resource: <https://docs.google.com/document/d/1dbpvCStlmk1TWxlOVFXzUaY2xwdlgReaFL9gMxdtf6Y/edit>
+    /gfd/ & /rr/ resources (Manga/Writings/others): https://github.com/OriginalSinger/role-reversal-resources/blob/master/rrr.md
 
-relatively new /gfd/ /rr/ manga:
->Ano Hito no i Ni Wa Boku Ga Tarinai - <https://mangadex.org/title/28664>
->Boku no Chi de Yokereba - <https://mangadex.org/title/7336>
->Boku no Kanojo wa Saikoudesu! - <https://mangadex.org/title/24121>
->Cigarette and Cherry - <https://mangadex.org/title/23181>
->Gokushufudou: The Way of the House Husband - <https://mangadex.org/title/23569>
->That Girl Is Not Just Cute - <https://mangadex.org/title/33326>
->The Story of the Lady Who Wants to Nurture a High School Boy. - <https://mangadex.org/title/25264>
+    /gfd/ /rr/ manga:
+    >Ano Hito no i Ni Wa Boku Ga Tarinai - https://mangadex.org/title/28664
+    >Boku no Chi de Yokereba - https://mangadex.org/title/7336
+    >Boku no Kanojo wa Saikoudesu! - https://mangadex.org/title/24121
+    >Cigarette and Cherry - https://mangadex.org/title/23181
+    >Gokushufudou: The Way of the House Husband - https://mangadex.org/title/23569
+    >That Girl Is Not Just Cute - https://mangadex.org/title/33326
+    >The Story of the Lady Who Wants to Nurture a High School Boy. - https://mangadex.org/title/25264
 
-old but gold writefaggotry:
->taiyakisoba - <https://archiveofourown.org/users/taiyakisoba/pseuds/taiyakisoba/works>
->"Lady Johanna" Series - <https://pastebin.com/u/KnightWriter>
->"Occupied City" - <https://pastebin.com/bMiTvcB7> (embed)
->"Valentine /gfd/" Parts 1 & 2 - <https://pastebin.com/tW34EBHL> (embed), <https://pastebin.com/hMDENVVs> (embed)
->bandagedboy - <https://pastebin.com/u/bandagedboy>
->Cynical_Writefag - <https://pastebin.com/u/Cynical_Writefag>
-```
+    /gfd/ /rr/ Classics:
+    >taiyakisoba - https://archiveofourown.org/users/taiyakisoba/pseuds/taiyakisoba/works
+    >"Lady Johanna" Series - https://pastebin.com/u/KnightWriter
+    >"Occupied City" - https://pastebin.com/bMiTvcB7
+    >"Valentine /gfd/" Parts 1 & 2 - https://pastebin.com/tW34EBHL, https://pastebin.com/hMDENVVs
+    >bandagedboy - https://pastebin.com/u/bandagedboy
+    >Cynical_Writefag - https://pastebin.com/u/Cynical_Writefag
