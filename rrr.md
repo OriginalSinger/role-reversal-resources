@@ -259,7 +259,6 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Otoyomegatari \<r\> - <https://mangadex.org/title/3409>
 - Palace Meidi \<r\> - <https://mangadex.org/title/19133>
 - Pashiri na Boku to Koisuru Banchou-san \<d\> - <https://mangadex.org/title/25862>
-- S Flower - <https://www.lezhin.com/en/comic/sflower_en> (thanks to u/ESDEATH2710)
 - Sakura-chan to Amane-kun \<c\> - <https://mangadex.org/title/25476>
 - Saotome Senshu, Hitakakusu - <https://mangadex.org/title/22078>
 - Scorching Romance \<r\> - <https://www.webtoons.com/en/romance/scorching-romance/list?title_no=1662&page=1>
