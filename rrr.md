@@ -324,19 +324,19 @@ I compiled these into an MDList. It’s better to browse there since you can dir
   - "Being a Prison Guard at a Female Prison is My Calling!" \<r\>\<g\>\<n\>\<s\>- <https://www.tsumino.com/Book/Info/26525>
   - "During Mating and Training" \<r\>\<m\>\<s\> - <https://www.tsumino.com/Book/Info/26442>
   - "Inspiration Assistance" \<r\>\<n\>\<s\> - <https://hentai.cafe/hc.fyi/7699>
-  - "Interracial Sex" \<r\>\<n\>\<m\>\<s\> - ~~<https://www.tsumino.com/Book/Info/30257>~~
-  - "Just Like in Doujinshi" \<r\>\<s\> - ~~<https://www.tsumino.com/Book/Info/40136>~~
+  - "Interracial Sex" \<r\>\<n\>\<m\>\<s\> - <https://hentai.cafe/hc.fyi/4591>
+  - "Just Like in Doujinshi" \<r\>\<s\> - <https://hentai.cafe/hc.fyi/8391>
   - "Kemo Ane x Shotaero Manga 2 Zenpen" \<r\>\<m\>\<s\> - <https://www.tsumino.com/Book/Info/20564>
   - "Oneshota Ero Manga" \<r\>\<n\>\<m\>\<s\> - <https://www.tsumino.com/Book/Info/18034>
   - "One Shota Ero Manga Kouhen \~Sensei no Ichirinzashi\~" \<r\>\<g\>\<m\>\<s\> - <https://www.tsumino.com/Book/Info/22687>
-  - "Run Away" \<g\>\<s\> - ~~<https://www.tsumino.com/Book/Info/33835>~~
+  - "Run Away" \<g\>\<s\> - <https://hentai.cafe/hc.fyi/5976>
   - "Sexual Addiction" \<r\>\<p\> - <https://nhentai.net/g/267639>
-  - "The Day It Began" \<r\>\<s\> - ~~<https://www.tsumino.com/Book/Info/34378>~~
+  - "The Day It Began" \<r\>\<s\> - <https://hentai.cafe/hc.fyi/6183>
   - "The Endless Days" \<r\> - <https://www.tsumino.com/Book/Info/38278>
   - "The Elf Village Council Official Sexual Extraction Manual" rns- <https://www.tsumino.com/Book/Info/28072>
-  - "The Night She Touched Me" \<r\>\<s\>\<c\> - ~~<https://www.tsumino.com/Book/Info/27535>~~
-  - "The Warrior Princess's Recreation Room" \<r\>\<n\>\<k\>\<s\> - ~~<https://www.tsumino.com/Book/Info/33836>~~
-- DISTANCE - "Devil Sisters!" \<r\>\<n\> - ~~<https://www.tsumino.com/Book/Info/28453>~~
+  - "The Night She Touched Me" \<r\>\<s\>\<c\> - <https://hentai.cafe/hc.fyi/2726>
+  - "The Warrior Princess's Recreation Room" \<r\>\<n\>\<k\>\<s\> - <https://hentai.cafe/hc.fyi/5802>
+- DISTANCE - "Devil Sisters!" \<r\>\<n\> - <https://hentai.cafe/hc.fyi/1349>
 - Dr.P
   - "Senpai Hunting" \<g\> - <https://www.tsumino.com/Book/Info/27951>
   - "Senpai Heating" - <https://www.tsumino.com/Book/Info/30545>
@@ -351,7 +351,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
   - "Dissection Victim!" \<r\>\<n\>\<s\> - <https://www.tsumino.com/Book/Info/3353>
   - "Itai Ko Tondeke!! \~Chuuni-kun Kousei Shiyo\~" \<r\>\<n\>\<s\> - <https://www.tsumino.com/Book/Info/17948>
   - "Kimi no Iya Garu Kao ga Mitai!!" \<r\>\<n\>\<c\> - <https://www.tsumino.com/Book/Info/17951>
-  - "Misbehavior at the Bath House" \<g\>\<n\> - ~~<https://www.tsumino.com/Book/Info/42452>~~
+  - "Misbehavior at the Bath House" \<g\>\<n\> - <https://hentai.cafe/hc.fyi/9116>
   - "Shasei Taikai!" \<r\>\<n\>\<s\> - <https://www.tsumino.com/Book/Info/17950>
   - "Skirt Mekuri no Batsu!" \<r\>\<n\>\<s\> - <https://www.tsumino.com/Book/Info/5992>
 - Gyuutan Teishoku e no Koi - "Story of the Boy Who Gets Assaulted on the Train to School by a Girl from His Class" \<r\>\<n\>\<m\>\<p\> - <https://nhentai.net/g/310455>
@@ -381,7 +381,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
   - “Leave it to Kagari-san” (Witch Craft Works) \<s\> - <https://nhentai.net/g/68618/>
   - “What did I do Kagari-san” (Witch Craft Works) \<s\> - <https://nhentai.net/g/101232/>
 - JINMI - “S Flower” - <https://www.lezhin.com/en/comic/sflower_en> (thanks to anon at the /gfd/ thread at /h/)
-- Karma Tatsurou - "Public Masturbation" \<r\>\<n\>\<c\> - ~~<https://www.tsumino.com/Book/Info/33851>~~
+- Karma Tatsurou - "Public Masturbation" \<r\>\<n\>\<c\> - <https://hentai.cafe/hc.fyi/5979>
 - Ketsuyuki Tamon - "Amayome Chance!" \<r\>\<g\> - ~~<https://www.tsumino.com/Book/Info/37542>~~
 - Kim Jong Geon - "No Holes Barred" (series) \<r\> - <https://www.lezhin.com/en/comic/noholesbarred>
 - Komagata - "Amayaka Shishou Zenpen" (Fate/Grand Order) - <https://nhentai.net/g/312349>
@@ -394,16 +394,16 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Makuro - "Sadistic Sister" \<r\>\<g\>\<n\>\<d\>\<s\> - <https://www.tsumino.com/Book/Info/17996>
 - Methonium - "Yoru no Champion" \<r\> - <https://nhentai.net/g/125431>
 - Mikuni Mizuki - "Encounter" \<r\>\<d\> - <https://www.tsumino.com/Book/Info/41331>
-- Minagiri - "Celebratory Drinks" \<r\>\<g\> - ~~<https://www.tsumino.com/Book/Info/43801>~~
+- Minagiri - "Celebratory Drinks" \<r\>\<g\> - <https://hentai.cafe/hc.fyi/9638>
 - Miyamoto Issa
   - "Henspecked Encouragement" \<r\>\<n\>\<d\> - <https://hentai.cafe/hc.fyi/5503>
   - “Tender Master” \<r\>\<s\> - <https://nhentai.net/g/292137/>
   - "Advice for the Whipped" \<r\>\<s\> - <https://nhentai.net/g/184840>
 - Miyashita Miki, Mochizuki Nana - "Inugami" (Inuyasha) \<r\> - <https://nhentai.net/g/1293>
-- Momoduki Suzu - "Chidori Isn't Going Home" \<r\>\<g\> - ~~<https://www.tsumino.com/Book/Info/36027>~~
+- Momoduki Suzu - "Chidori Isn't Going Home" \<r\>\<g\> - <https://hentai.cafe/hc.fyi/7003>
 - Morikoke - "Activities for the Sake of Hyrule’s Future!" \<r\>\<g\> - <https://www.tsumino.com/Book/Info/36166>
 - Napata
-  - "Good Luck Charm" \<r\>\<g\> - ~~<https://www.tsumino.com/Book/Info/41695>~~
+  - "Good Luck Charm" \<r\>\<g\> - <https://hentai.cafe/hc.fyi/8906>
   - "Nanako-san" \<r\>\<g\>\<s\> - <https://www.tsumino.com/Book/Info/4652>
 - Nakamura Regura - "Seidoku no Ato ni..." (Fate/Grand Order) \<r\> - <https://nhentai.net/g/275387>
 - Nakata Modem
@@ -436,7 +436,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
   - "Magic Patch" \<r\>\<g\>\<c\> - <https://www.pixiv.net/member_illust.php?mode=manga&illust_id=58269836>
   - "Prince Princess Dragon" \<r\> - <https://www.pixiv.net/member_illust.php?mode=medium&illust_id=62989710>
 - Raita - “Sasaki Rapes Yoshida” (Azumanga Daioh) \<n\> - <https://e-hentai.org/g/26326/b31b58f53e/>
-- Rico - "The Lady's Soliloquy" \<r\>\<n\> - ~~<https://www.tsumino.com/Book/Info/38971>~~
+- Rico - "The Lady's Soliloquy" \<r\>\<n\> - <https://hentai.cafe/hc.fyi/7845>
 - Ryohka - "The skillful teaser Nagatoro-san" \<r\>\<d\> - <https://www.tsumino.com/Book/Info/43849>
 - Sena Youtarou
   - "The Witch, The Succubus, And The Cute Apprentice Ch. 1-10 & Extra" - <https://nhentai.net/g/104984/>
@@ -451,7 +451,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
   - "Shiragasane (Darning) -Zen/Tan-" \<g\>\<m\> - <https://www.tsumino.com/Book/Info/22510>
   - "Shiragasane -bo-" \<r\>\<g\>\<n\>\<m\>\<s\> - <https://www.tsumino.com/Book/Info/37081>
   - "Shiragasane -Tsuzure-" \<r\>\<g\>\<n\>\<m\> - <https://www.tsumino.com/entry/45971>
-  - "Normal Relationship" \<r\>\<g\>\<n\>\<s\> - ~~<https://www.tsumino.com/Book/Info/20323>~~
+  - "Normal Relationship" \<r\>\<g\>\<n\>\<s\> - <https://hentai.cafe/hc.fyi/283>
 - Survival Knife
   - "Schwarz Weiß" \<r\>\<n\>\<k\>\<s\> - <https://hentainexus.com/view/6012>
   - "Schwarz Weiß \~Reverse\~" \<r\>\<g\>\<n\>\<m\>\<k\>\<s\>\<c\> <https://hentainexus.com/view/7974>
