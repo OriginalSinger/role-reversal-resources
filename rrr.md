@@ -80,6 +80,8 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - fapworthydiction - <https://www.hentai-foundry.com/stories/user/fapworthyDiction>
   - "Diary of a fledgling Dominatrix" - <https://www.hentai-foundry.com/stories/user/fapworthyDiction/21270/Diary-of-fledgling-Dominatrix>
   - "Chi-soo, That girl from chessclub" - <https://www.hentai-foundry.com/stories/user/fapworthyDiction/20964/Chi-Soo-That-girl-from-chessclub>
+- Guze - <https://pastebin.com/u/Guze>
+  - "Electric Feel (Raiju)" \<n\>\<m\> - <https://pastebin.com/5zi75BCN>
 - hadron3
   - "Occupied City" \<r\>\<g\>\<n\> - <https://pastebin.com/bMiTvcB7>
 - IneedSleep \<a\> - <https://pastebin.com/u/IneedSleep>
