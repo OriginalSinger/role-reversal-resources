@@ -1,5 +1,9 @@
 # Role Reversal Resources
 
+**Suggestions? You can now use [this Google form](https://docs.google.com/forms/d/e/1FAIpQLSf81EkDKDYo_33TsGJeAnMNCu2SwSPwoIdsrGuEaj52a07Smg/viewform?usp=sf_link) to provide suggestions
+anonymously!**
+
+
 Note: the original gdoc was flagged. Here's a backup of the original gdoc: <https://drive.google.com/file/d/100nIw1mh5paYFdqukmkgiqvs8VATcSvW/view?usp=sharing>  
 It's a zip file (mainly an attempt to avoid the flagging of google) of a pdf and a docx file of the original document. The docx file includes the comments, the pdf file does not.  
 I'll update this paste just like I did with the original gdoc, but at some point I'd like to host this list at another site. I'll put the link here when I've done it.
@@ -104,6 +108,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - Lazah \<r\> - <https://www.literotica.com/stories/memberpage.php?uid=4639865&page=submissions> (thanks to u/lazah77)
   - "In Your Honor" \<r\> - <https://www.literotica.com/s/in-your-honor>
   - "In Your Wildest Dreams" \<r\> - <https://www.literotica.com/s/in-your-wildest-dreams-1>
+- locallilkiddo - "Welted Hands, White Hair" - <https://archiveofourown.org/works/13053612>
 - manwhohasitall \<r\> - <https://twitter.com/manwhohasitall> (h/t [/u/\_nok](https://reddit.com/r/RoleReversal/comments/gahbx4))
 - MarsBenway - <https://www.literotica.com/stories/memberpage.php?uid=4366564&page=submissions>
   - Used by London Bankers \<r\>\<n\> - <https://www.literotica.com/s/used-by-london-bankers>
