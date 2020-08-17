@@ -114,8 +114,8 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - Used by London Bankers \<r\>\<n\> - <https://www.literotica.com/s/used-by-london-bankers>
 - Martha Wells - "The Books of the Raksura"
 - MirrorDragon
-  - "A Heated Challenge" rgm(?)k - <https://archiveofourown.org/works/18121049/chapters/42840746>
-  - "Good Vibes Only" rgm(?)k - <https://archiveofourown.org/works/19399153/chapters/46164328>
+  - "A Heated Challenge" \<r\>\<g\>\<n\>\<m\>(?)\<k\> - <https://archiveofourown.org/works/18121049/chapters/42840746>
+  - "Good Vibes Only" \<r\>\<g\>\<n\>\<m\>(?)\<k\> - <https://archiveofourown.org/works/19399153/chapters/46164328>
 - murg
   - "Let Me In, Even If Just to Bore Me" \<r\> - <https://archiveofourown.org/works/19745350>
 - OctoSally (thanks to u/BossB15)
@@ -142,7 +142,10 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - SIFSUB
   - "My manager is my mistress (non lewd)" \<g\> - <https://pastebin.com/TJAvFqgf>
   - "I don't bite" \<g\> - <https://pastebin.com/hWmZEyjb>
-- Silent_II - <https://drive.google.com/drive/folders/0BzL7aw4ZKvmNaEIxSWFkblpHbUE>
+- Silent_II/Frugert
+  - "Endors Toi" \<r\>\<g\>\<m\> - https://pastebin.com/JAv9gYYR
+  - "Kiss From a Rose \<r\>\<g\>\<m\> - https://pastebin.com/JAv9gYYR
+  - Older Works <https://drive.google.com/drive/folders/0BzL7aw4ZKvmNaEIxSWFkblpHbUE>
 - smolbrit - <https://web.archive.org/web/20160922043824/http://pastebin.com/u/Smolbrit>
 - snekguy \<r\>\<g\>\<n\>\<m\> - <https://www.patreon.com/Snekguy>
   - Everything he's ever written, with tags and synopses - <https://pastebin.com/dHd9iFCN>
@@ -176,7 +179,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - WokCano
   - <https://www.reddit.com/r/WritingPrompts/comments/biqtjl/wp_it_is_customary_to_propose_a_marriage_by/em2jcyc/>brave check specific cookies
 - Wattpad (thanks to u/ESDEATH2710)
-  - iamananimeniac \<r\>\<g\> - "CAN'T BE TAMED" - <https://www.wattpad.com/story/144097249>
+  - iamananimeniac - "CAN'T BE TAMED" \<r\>\<g\>  - <https://www.wattpad.com/story/144097249>
   - ~~makixuxi - "Mommy" \<r\>\<g\> - <https://www.wattpad.com/story/159210013>~~
   - ~~Artsy-Gal - "Ties" \<r\>\<g\> - <https://www.wattpad.com/story/166453835>~~
   - TheAngryAlphyn - "Thrice Allured" \<r\>\<g\> - <https://www.wattpad.com/story/101914617>
