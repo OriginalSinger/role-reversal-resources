@@ -216,6 +216,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Cigarette and Cherry \<r\> - <https://mangadex.org/title/23181>
 - Elf Boyfriend & Boyish Girlfriend \<r\>\<m\> - <https://mangadex.org/title/37911>
 - Emperor and the Female Knight \<r\>\<k\> - <https://mangadex.org/title/42278>
+- Empress's Harem \<r\> - <https://mangadex.org/title/45090>
 - Fujiyama-san wa Shishunki \<r\> - <https://mangadex.org/title/11189>
 - Gekkan Shoujo Nozaki-kun \<r\> - <https://mangadex.org/title/1880>
 - Girls of the Wild's \<r\>\<g\> - <https://mangadex.org/title/1021> (thanks to u/Shirotheskyrimnerd)
@@ -238,7 +239,9 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Kanokon \<g\> - <https://mangadex.org/title/235> (thanks to u/FloatAway97)
 - Karakai Jouzu no Takagi-san - <https://mangadex.org/title/13108>
 - Kawaii Hito \<r\> - <https://mangadex.org/title/16050>
+- Kawaii Oresama \<r\> - <https://mangadex.org/title/11502>
 - Kitty Boy - <https://tapas.io/series/kittyboy> (h/t [/u/UtaTan](https://www.reddit.com/r/RoleReversal/comments/f5ruo4))
+- Koi desu ga Koi Janai \<r\>\<d\> - <https://mangadex.org/title/22020>
 - Koisuru Yankee Girl \<d\> - <https://mangadex.org/title/19245> (thanks to u/realFoobanana)
 - Koitsu, Ore No Koto Suki Nanoka?! \<r\>\<d\> - <https://www.mangadex.org/title/28499>
 - Kono Onee-san wa Fiction desu!? \<g\> - <https://mangadex.org/title/449>
@@ -259,6 +262,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Oh! Lord Jesus \<r\> - <https://www.webtoons.com/en/romance/oh-holy/list?title_no=809> / <https://mangadex.org/title/16655>
 - Ojou-sama ga Mamorasete Kurenai \<r\> - <https://mangadex.org/title/33400>
 - Ore ga Fujoshi de Aitsu ga Yuriota de - <https://mangadex.org/title/20347> (thanks to u/Reymma)
+- Otoko no Ko ni Toriko \<r\> - <https://mangadex.org/title/9657>
 - Otomen \<r\> - <https://www.viz.com/otomen> (thanks to u/ESDEATH2710)
 - Omae Watashi no Koto Suki daro? \<r\> - <https://mangadex.org/title/31909>
 - Oresama Teacher \<r\>\<d\> - <https://mangadex.org/title/913>
@@ -266,6 +270,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Otoyomegatari \<r\> - <https://mangadex.org/title/3409>
 - Palace Meidi \<r\> - <https://mangadex.org/title/19133>
 - Pashiri na Boku to Koisuru Banchou-san \<d\> - <https://mangadex.org/title/25862>
+- S Watari-san to M Mura-kun - <https://mangadex.org/title/19296>
 - Sakura-chan to Amane-kun \<c\> - <https://mangadex.org/title/25476>
 - Saotome Senshu, Hitakakusu - <https://mangadex.org/title/22078>
 - Scorching Romance \<r\> - <https://www.webtoons.com/en/romance/scorching-romance/list?title_no=1662&page=1>
@@ -283,6 +288,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - That Girl Is Not Just Cute - <https://mangadex.org/title/33326>
 - That Adolescent Pig-Rascal Did Not Dream a Bunny-Girl Senpai \<r\> - <https://mangadex.org/title/19505> (Note: has anime adaptation)
 - The Duke of Death and His Black Maid - <https://mangadex.org/title/22422>
+- The Flirtatious Princess Consort \<r\> - <http://webcomicsapp.com/comic/5f16a7bc8c252b2fa46d1086>
 - The girl I like forgot her glasses - <https://mangadex.org/title/32648>
 - The Girl with a Kansai Accent and the Pure Boy \<s\> - <https://mangadex.org/title/46433>
 - The Great Wife / My Wife is a Gangster \<r\>\<d\> - <https://merakiscans.com/manga/the-great-wife> (h/t [/u/mysteryguy74](https://reddit.com/r/RoleReversal/comments/eos4kj))
@@ -294,9 +300,11 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - The Story of an Onee-San Who Wants to Keep a High School Boy. \<r\>\<g\> - <https://mangadex.org/title/25264>
 - The Story Of The Girl I Like Being Too Ikemen \<r\> - <https://hatigarmscanz.net/comics/8275-the-story-of-the-girl-i-like-being-too-ikemen>
 - The World of Moral Reversal \<r\> - <https://mangadex.org/title/20978>
+- This Boy Got Me Falling Hard \<r\> - <https://mangadex.org/title/50581>
 - Tonari no Idol-san - <https://mangadex.org/title/33487>
 - Tonari no Kinniku Joshi - <https://mangadex.org/title/40377>
 - Trans Trans \<g\> - <https://www.mangahere.cc/manga/trans_trans/> (thanks to u/FloatAway97)
+- Tsuki no Oki ni Mesu mama - <https://mangadex.org/title/46599>
 - Tsumi to Kai - <https://mangadex.org/title/22727> (Note: NOT gentle)
 - Tsun-Sweet Boyfriend \<r\> - <https://mangadex.org/title/34035>
 - Tsuru Tsuru to Zara Zara no Aida \<r\> - <https://mangadex.org/title/11914>
