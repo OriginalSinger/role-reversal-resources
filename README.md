@@ -21,6 +21,8 @@ until I find a better platform.
 
 ## How can I suggest something?
 
+- anonymously, through [this Google Form](https://docs.google.com/forms/d/e/1FAIpQLSf81EkDKDYo_33TsGJeAnMNCu2SwSPwoIdsrGuEaj52a07Smg/viewform?usp=sf_link)
+  - there is an option to add a name if you want to get credited for the suggestion
 - through github, by:
   - adding an issue
   - making a pull request
