@@ -236,6 +236,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Ijiranaide, Nagatoro-san \<d\> - <https://mangadex.org/title/22631>
 - Ikenai Candy Love \<r\> - <https://mangadex.org/title/3185>
 - Immortal Swordsman in The Reverse World \<r\> - <https://mangadex.org/title/45361>
+- Is It Wrong to Get Done by a Girl? \<r\> <https://mangadex.org/title/51268/is-it-wrong-to-get-done-by-a-girl>
 - It’s Not Meguro-san’s First Time - <https://mangadex.org/title/31233> (thanks to u/realFoobanana)
 - It's Okay to be Shy! \<r\> - <https://henamyung.tumblr.com/search/it%27s+okay+to+be+shy>
 - Just Give it to Me \<r\> - <https://www.tappytoon.com/series/giveittome/1>
