@@ -109,6 +109,8 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "In Your Honor" \<r\> - <https://www.literotica.com/s/in-your-honor>
   - "In Your Wildest Dreams" \<r\> - <https://www.literotica.com/s/in-your-wildest-dreams-1>
 - locallilkiddo - "Welted Hands, White Hair" - <https://archiveofourown.org/works/13053612>
+- Man of the House \<r\>\<g\> - <https://whatsawhizzerwebnovels.com/the-man-of-the-house/> (h/t Cas) (_Note: site is down as of 19 Oct 2020_)
+  - Mirror: <https://www.scribblehub.com/series/65587/the-man-of-the-house/>
 - manwhohasitall \<r\> - <https://twitter.com/manwhohasitall> (h/t [/u/\_nok](https://reddit.com/r/RoleReversal/comments/gahbx4))
 - MarsBenway - <https://www.literotica.com/stories/memberpage.php?uid=4366564&page=submissions>
   - Used by London Bankers \<r\>\<n\> - <https://www.literotica.com/s/used-by-london-bankers>
@@ -120,6 +122,10 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "Let Me In, Even If Just to Bore Me" \<r\> - <https://archiveofourown.org/works/19745350>
 - OctoSally (thanks to u/BossB15)
   - "How To Train Your Angel-Wolf-Boyfriend" \<r\> - <https://archiveofourown.org/works/3384977?view_full_work=true>
+- PrinceCai - <https://chyoa.com/user/PrinceCai> (h/t Cas (from the suggestion form))
+  - _Note: As these are all CHYOA, there are multiple routes, with different tags. Any particular route does not necessarily have all the tags listed here._
+  - The Fairer Sex \<r\>\<g\> - <https://chyoa.com/story/The-Fairer-Sex.29987> (h/t Cas)
+  - The Captive Prince \<r\>\<g\>\<m\>\<n\> - <https://chyoa.com/story/The-Captive-Prince.27292> (h/t Cas)
 - PRW
   - "Alex and Eris" \<r\>\<g\>\<n\>\<m\> - <https://pastebin.com/DtU8qHDt>
 - PulpWyatt \<r\>\<n\> - <https://www.literotica.com/stories/memberpage.php?uid=1903426&page=submissions>
@@ -152,6 +158,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - SnoopingDetective \<r\> - <https://www.deviantart.com/snoopingdetective>
   - "The Pool Party: A Gender Roles Reversed Story" \<r\>\<n\> - <https://www.deviantart.com/snoopingdetective/art/The-Pool-Party-A-Gender-Roles-Reversed-Story-644971822>
 - Sonnyjimjr - <https://fictionmania.tv/searchdisplay/authordisplay.html?word=5456>
+- Swallows99 - Forced Ejaculation \<r\>\<n\> - <https://chyoa.com/story/Forced-Ejaculation-Anthology.18098> (h/t Cas)
 - taiyakisoba - <https://archiveofourown.org/users/taiyakisoba/pseuds/taiyakisoba/works>
   - "Bringing the Heat" \<r\>\<g\> - <https://archiveofourown.org/works/2454164>
   - "In Her Ardent Embrace" \<r\>\<g\> - <https://archiveofourown.org/works/2606318>
@@ -173,6 +180,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "Please don't take my sunshine" \<r\> - <https://archiveofourown.org/works/14004846> (Focuses on M/M, but has F/M elements)
 - The Anon and His Kitten \<r\> - <https://anonandkitten.blogspot.com/> (recommended by someone I can't find right now)
   - "The Anon and His Kitten" \<r\> - <https://anonandkitten.blogspot.com/2011/09/while-i-sleep.html>
+- TheNextGamer - Reversed Gender Norms \<r\>\<g\> - <https://chyoa.com/story/Reversed-Gender-Norms.20174/> (h/t Cas)
 - Twiddlesticks (Shovel Knight Works) \<r\> - <https://archiveofourown.org/users/Twiddlesticks/pseuds/Twiddlesticks/works?fandom_id=2991845>
 - Wen Spencer
   - “A Brother’s Price” \<r\> - <https://www.amazon.com/Brothers-Price-Wen-Spencer-ebook/dp/B000OIZU1M>
