@@ -239,6 +239,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Is It Wrong to Get Done by a Girl? \<r\> <https://mangadex.org/title/51268/is-it-wrong-to-get-done-by-a-girl>
 - It’s Not Meguro-san’s First Time - <https://mangadex.org/title/31233> (thanks to u/realFoobanana)
 - It's Okay to be Shy! \<r\> - <https://henamyung.tumblr.com/search/it%27s+okay+to+be+shy>
+- It's Summer! There's Fireworks! And for Boys, a Yukata! \<r\> - <https://mangadex.org/title/7315>
 - Just Give it to Me \<r\> - <https://www.tappytoon.com/series/giveittome/1>
 - Kanokon \<g\> - <https://mangadex.org/title/235> (thanks to u/FloatAway97)
 - Karakai Jouzu no Takagi-san - <https://mangadex.org/title/13108>
