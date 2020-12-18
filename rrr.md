@@ -3,6 +3,7 @@
 **Suggestions? You can now use [this Google form](https://docs.google.com/forms/d/e/1FAIpQLSf81EkDKDYo_33TsGJeAnMNCu2SwSPwoIdsrGuEaj52a07Smg/viewform?usp=sf_link) to provide suggestions
 anonymously!**
 
+**All NSFW Pastebin posts are now set to private.** See [discussion](https://github.com/OriginalSinger/role-reversal-resources/issues/9).
 
 Note: the original gdoc was flagged. Here's a backup of the original gdoc: <https://drive.google.com/file/d/100nIw1mh5paYFdqukmkgiqvs8VATcSvW/view?usp=sharing>  
 It's a zip file (mainly an attempt to avoid the flagging of google) of a pdf and a docx file of the original document. The docx file includes the comments, the pdf file does not.  
