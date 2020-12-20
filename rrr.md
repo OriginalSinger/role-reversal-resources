@@ -254,6 +254,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Karakai Jouzu no Takagi-san - <https://mangadex.org/title/13108>
 - Kawaii Hito \<r\> - <https://mangadex.org/title/16050>
 - Kawaii Oresama \<r\> - <https://mangadex.org/title/11502>
+- Kimi wa Petto - <https://mangadex.org/title/2966>
 - Kitty Boy - <https://tapas.io/series/kittyboy> (h/t [/u/UtaTan](https://www.reddit.com/r/RoleReversal/comments/f5ruo4))
 - Koi desu ga Koi Janai \<r\>\<d\> - <https://mangadex.org/title/22020>
 - Koisuru Yankee Girl \<d\> - <https://mangadex.org/title/19245> (thanks to u/realFoobanana)
