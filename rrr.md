@@ -154,8 +154,8 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "Kiss From a Rose \<r\>\<g\>\<m\> - https://pastebin.com/JAv9gYYR
   - Older Works <https://drive.google.com/drive/folders/0BzL7aw4ZKvmNaEIxSWFkblpHbUE>
 - smolbrit - <https://web.archive.org/web/20160922043824/http://pastebin.com/u/Smolbrit>
-- snekguy \<r\>\<g\>\<n\>\<m\> - <https://www.patreon.com/Snekguy>
-  - Everything he's ever written, with tags and synopses - <https://pastebin.com/dHd9iFCN>
+- snekguy \<r\>\<g\>\<n\>\<m\> - <https://www.patreon.com/Snekguy> / <http://snekguy.com>
+  - Everything he's ever written, with tags and synopses - <http://snekguy.com/>
 - SnoopingDetective \<r\> - <https://www.deviantart.com/snoopingdetective>
   - "The Pool Party: A Gender Roles Reversed Story" \<r\>\<n\> - <https://www.deviantart.com/snoopingdetective/art/The-Pool-Party-A-Gender-Roles-Reversed-Story-644971822>
 - Sonnyjimjr - <https://fictionmania.tv/searchdisplay/authordisplay.html?word=5456>
