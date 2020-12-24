@@ -26,6 +26,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
 
 - \<r\> - role reversal
 - \<g\> - gentle femdom
+- \<sfw\> - safe for work (SFW)
 - \<n\> - non-consent
 - \<m\> - monstergirl
 - \<a\> - amazon
@@ -120,7 +121,8 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "A Heated Challenge" \<r\>\<g\>\<n\>\<m\>(?)\<k\> - <https://archiveofourown.org/works/18121049/chapters/42840746>
   - "Good Vibes Only" \<r\>\<g\>\<n\>\<m\>(?)\<k\> - <https://archiveofourown.org/works/19399153/chapters/46164328>
 - murg
-  - "Let Me In, Even If Just to Bore Me" \<r\> - <https://archiveofourown.org/works/19745350>
+  - "Let Me In, Even If Just to Bore Me" \<r\>\<sfw\> - <https://archiveofourown.org/works/19745350>
+  - "Grocery Girl" \<r\>\<sfw\> - <https://archiveofourown.org/works/28246437>
 - OctoSally (thanks to u/BossB15)
   - "How To Train Your Angel-Wolf-Boyfriend" \<r\> - <https://archiveofourown.org/works/3384977?view_full_work=true>
 - PrinceCai - <https://chyoa.com/user/PrinceCai> (h/t Cas (from the suggestion form))
