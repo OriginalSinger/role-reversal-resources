@@ -45,12 +45,12 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - Anime Misstery
   - "Role Reversal" \<r\> - <https://www.fictionpress.com/s/2955400/1/Role-Reversal>
 - Anonymous
-  - "Valentine /gfd/ Part 1" \<g\> - <https://pastebin.com/tW34EBHL>
-  - "Valentine /gfd/ Part 2" \<g\> - <https://pastebin.com/hMDENVVs>
-  - “Valentine /gfd/ (Ch. 1-2 re-upload + Ch. 3)” \<g\> - <https://pastebin.com/HYzhwYmu>
-  - “'Official' ending to Valentine/gfd/ (Read Note)” - <https://pastebin.com/yv0XpsCm>
+  - "Valentine /gfd/ Part 1" \<g\> - ~~<https://pastebin.com/tW34EBHL>~~
+  - "Valentine /gfd/ Part 2" \<g\> - ~~<https://pastebin.com/hMDENVVs>~~
+  - “Valentine /gfd/ (Ch. 1-2 re-upload + Ch. 3)” \<g\> - ~~<https://pastebin.com/HYzhwYmu>~~
+  - “'Official' ending to Valentine/gfd/ (Read Note)” - ~~<https://pastebin.com/yv0XpsCm>~~
   - "/d/#6687901" \<r\>\<g\>\<n\> - <https://pastebin.com/eAsk39Yb>
-  - "Untitled" \<g\> - <https://pastebin.com/iiPc7ASn>
+  - "Untitled" \<g\> - ~~<https://pastebin.com/iiPc7ASn>~~
 - bandagedboy \<g\> - <https://pastebin.com/u/bandagedboy>
   - "LK/M" \<r\>\<g\>\<n\> - <https://pastebin.com/90DDMFUQ>
   - "RN" \<r\> - <https://pastebin.com/VCrDLCBh>
@@ -61,8 +61,8 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - Batotit
   - A Woman's World \<r\>\<g\>\<n\> - <https://www.literotica.com/s/a-womans-world-pt-01>
 - bobanon - <https://pastebin.com/u/bobanon>
-  - "The Big Bad Wolf" \<r\>\<n\>\<m\> - <https://pastebin.com/RXYWAw18>
-  - "The Big Bad Wolf 2" \<r\>\<n\>\<m\> - <https://pastebin.com/eeZ9ZdKF>
+  - "The Big Bad Wolf" \<r\>\<n\>\<m\> - ~~<https://pastebin.com/RXYWAw18>~~
+  - "The Big Bad Wolf 2" \<r\>\<n\>\<m\> - ~~<https://pastebin.com/eeZ9ZdKF>~~
 - ~~CampGreen \<r\>\<n\>\<m\> - <https://archiveofourown.org/users/CampGreen/pseuds/CampGreen>~~ (no archives)
 - cabin_writer - <https://pastebin.com/u/cabin_writer>
   - "Fever Dreams" \<g\>\<n\>\<s\> - <https://pastebin.com/8BUtvNeC>
@@ -76,9 +76,9 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - “Slay or be Slain” \<r\>\<g\>\<m\> - <https://pastebin.com/jsHyNSp7>
   - “They came in outer space” \<r\>\<g\> - <https://pastebin.com/g9meyxdb>
 - Dagdammit - <https://pastebin.com/u/Dagdammit>
-  - "Runner (Incomplete)" \<r\> - <https://pastebin.com/205nDvys>
+  - "Runner (Incomplete)" \<r\> - ~~<https://pastebin.com/205nDvys>~~
   - “Assassin” - <https://pastebin.com/yhxfhU8T>
-  - “Demoness” - <https://pastebin.com/wupUXuBv>
+  - “Demoness” - ~~<https://pastebin.com/wupUXuBv>~~
 - decadentbynature
   - "Monster's Kiss" \<r\>\<n\>\<m\> - <https://archiveofourown.org/works/14941940/chapters/34620338>
 - Dorine54
@@ -89,7 +89,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - Guze - <https://pastebin.com/u/Guze>
   - "Electric Feel (Raiju)" \<n\>\<m\> - <https://pastebin.com/5zi75BCN>
 - hadron3
-  - "Occupied City" \<r\>\<g\>\<n\> - <https://pastebin.com/bMiTvcB7>
+  - "Occupied City" \<r\>\<g\>\<n\> - ~~<https://pastebin.com/bMiTvcB7>~~
 - IneedSleep \<a\> - <https://pastebin.com/u/IneedSleep>
   - "AmazonXNobleman" \<r\>\<n\>\<a\> - <https://pastebin.com/YLiJ2HaN>
 - jeffrey214 - Literotica (archived)
@@ -130,7 +130,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - The Fairer Sex \<r\>\<g\> - <https://chyoa.com/story/The-Fairer-Sex.29987> (h/t Cas)
   - The Captive Prince \<r\>\<g\>\<m\>\<n\> - <https://chyoa.com/story/The-Captive-Prince.27292> (h/t Cas)
 - PRW
-  - "Alex and Eris" \<r\>\<g\>\<n\>\<m\> - <https://pastebin.com/DtU8qHDt>
+  - "Alex and Eris" \<r\>\<g\>\<n\>\<m\> - ~~<https://pastebin.com/DtU8qHDt>~~
 - PulpWyatt \<r\>\<n\> - <https://www.literotica.com/stories/memberpage.php?uid=1903426&page=submissions>
   - “A Symbolic Message” \<r\>\<g\> - <https://www.literotica.com/s/a-symbolic-message>
 - Rainbowbloodunicorn - <https://pastebin.com/u/Rainbowbloodunicorn>
@@ -152,8 +152,8 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "My manager is my mistress (non lewd)" \<g\> - <https://pastebin.com/TJAvFqgf>
   - "I don't bite" \<g\> - <https://pastebin.com/hWmZEyjb>
 - Silent_II/Frugert
-  - "Endors Toi" \<r\>\<g\>\<m\> - https://pastebin.com/JAv9gYYR
-  - "Kiss From a Rose \<r\>\<g\>\<m\> - https://pastebin.com/JAv9gYYR
+  - "Endors Toi" \<r\>\<g\>\<m\> - ~~<https://pastebin.com/JAv9gYYR>~~
+  - "Kiss From a Rose \<r\>\<g\>\<m\> - ~~<https://pastebin.com/JAv9gYYR>~~
   - Older Works <https://drive.google.com/drive/folders/0BzL7aw4ZKvmNaEIxSWFkblpHbUE>
 - smolbrit - <https://web.archive.org/web/20160922043824/http://pastebin.com/u/Smolbrit>
 - snekguy \<r\>\<g\>\<n\>\<m\> - <https://www.patreon.com/Snekguy> / <http://snekguy.com>
@@ -555,7 +555,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 
 ## Other /gfd/ /rr/ resources
 
-- /gfd/rr/ thread archive - <https://pastebin.com/zwvLTcVG> (outdated)
+- /gfd/rr/ thread archive - ~~<https://pastebin.com/zwvLTcVG>~~ (outdated)
 - /gfd/ & /rr/ Updated OP - <https://pastebin.com/aEL3Z6qW>
 - /gfd/ and /rr/ megabin - <https://pastebin.com/evbfjazh>
 - /gfd/ Stories - <https://pastebin.com/xth0eEAs>
