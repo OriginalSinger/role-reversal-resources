@@ -60,6 +60,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "Escape from the Bermuda triangle" \<g\> - <https://archiveofourown.org/works/5737978/chapters/13222708>
 - Batotit
   - A Woman's World \<r\>\<g\>\<n\> - <https://www.literotica.com/s/a-womans-world-pt-01>
+- Bluefishcake - "Sexy Space Babes" \<r\> - <https://www.royalroad.com/fiction/37934/sexy-space-babes> (thanks again to Cas from the google forms)
 - bobanon - <https://pastebin.com/u/bobanon>
   - "The Big Bad Wolf" \<r\>\<n\>\<m\> - ~~<https://pastebin.com/RXYWAw18>~~
   - "The Big Bad Wolf 2" \<r\>\<n\>\<m\> - ~~<https://pastebin.com/eeZ9ZdKF>~~
