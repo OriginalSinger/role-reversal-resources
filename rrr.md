@@ -60,7 +60,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "Escape from the Bermuda triangle" \<g\> - <https://archiveofourown.org/works/5737978/chapters/13222708>
 - Batotit
   - A Woman's World \<r\>\<g\>\<n\> - <https://www.literotica.com/s/a-womans-world-pt-01>
-- Bluefishcake - "Sexy Space Babes" \<r\> - <https://www.royalroad.com/fiction/37934/sexy-space-babes> (thanks again to Cas from the google forms)
+- Bluefishcake - "Sexy Space Babes" \<r\> - <https://www.royalroad.com/fiction/37934/sexy-space-babes> (thanks again to Cas from the google forms) (Note: Chapters 2-20 are locked, but can be purchased on amazon (see link). It's ongoing, so the rest of the chapters (21-) are still free)
 - bobanon - <https://pastebin.com/u/bobanon>
   - "The Big Bad Wolf" \<r\>\<n\>\<m\> - ~~<https://pastebin.com/RXYWAw18>~~
   - "The Big Bad Wolf 2" \<r\>\<n\>\<m\> - ~~<https://pastebin.com/eeZ9ZdKF>~~
@@ -87,6 +87,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - fapworthydiction - <https://www.hentai-foundry.com/stories/user/fapworthyDiction>
   - "Diary of a fledgling Dominatrix" - <https://www.hentai-foundry.com/stories/user/fapworthyDiction/21270/Diary-of-fledgling-Dominatrix>
   - "Chi-soo, That girl from chessclub" - <https://www.hentai-foundry.com/stories/user/fapworthyDiction/20964/Chi-Soo-That-girl-from-chessclub>
+- Fox_Wedding - "Mildly Dubious Trouble in Paradise" \<r\> - <https://archiveofourown.org/works/26430538>
 - Guze - <https://pastebin.com/u/Guze>
   - "Electric Feel (Raiju)" \<n\>\<m\> - <https://pastebin.com/5zi75BCN>
 - hadron3
@@ -104,6 +105,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "Lady Johanna - Chapter 4" \<r\>\<g\>\<k\> - <https://pastebin.com/YbdKsi83>
   - "Lady Johanna - Chapter 5" \<r\>\<g\>\<k\> - <https://pastebin.com/Z6XuqM9Z>
   - "Lady Johanna - Chapter 6" \<r\>\<g\>\<k\> - <https://pastebin.com/BtHXmQ53>
+- Lanzelotti - Mayonaka Danshi \<r\> - <https://archiveofourown.org/works/20182828/chapters/47821255>
 - Lara Kinsey
   - "Hammer & Tongs" \<r\>\<g\>\<p\> - <https://www.amazon.com/Hammer-Tongs-Chances-Limited-Book-ebook/dp/B0842ZPP9C>
 - LateStageInfernalism - Scripts and Writing (Google Sheets)
@@ -126,6 +128,9 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "Grocery Girl" \<r\>\<sfw\> - <https://archiveofourown.org/works/28246437>
 - OctoSally (thanks to u/BossB15)
   - "How To Train Your Angel-Wolf-Boyfriend" \<r\> - <https://archiveofourown.org/works/3384977?view_full_work=true>
+- odilemoon - "Secondhand Elf" \<r\>\<g\>\<n\> - <https://archiveofourown.org/works/26177209>
+- orphan_account (works on ArchiveOfOurOwn that were abandoned by its author (may be completed/incomplete))
+  - "Humans Are Such Easy Prey" \<r\>\<n\> - <https://archiveofourown.org/works/22685935>
 - PrinceCai - <https://chyoa.com/user/PrinceCai> (h/t Cas (from the suggestion form))
   - _Note: As these are all CHYOA, there are multiple routes, with different tags. Any particular route does not necessarily have all the tags listed here._
   - The Fairer Sex \<r\>\<g\> - <https://chyoa.com/story/The-Fairer-Sex.29987> (h/t Cas)
@@ -166,7 +171,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - taiyakisoba - <https://archiveofourown.org/users/taiyakisoba/pseuds/taiyakisoba/works>
   - "Bringing the Heat" \<r\>\<g\> - <https://archiveofourown.org/works/2454164>
   - "In Her Ardent Embrace" \<r\>\<g\> - <https://archiveofourown.org/works/2606318>
-  - "Wings of Desire" \<g\> - <https://archiveofourown.org/works/2760794>
+  - "Wings of Desire" \<g\>\<m\> - <https://archiveofourown.org/works/2760794>
   - "Takeover" \<r\>\<g\>\<n\> - <https://archiveofourown.org/works/2779652>
   - "A Taste for Christmas Cake" \<r\>\<g\>\<x\> - <https://archiveofourown.org/works/3145253>
   - "The Sentimental Succubus" \<g\> - <https://archiveofourown.org/works/3241379>
@@ -177,6 +182,8 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - Note: sanguia orphaned a lot of their past works, and deleted "Oh, but Conformity...". The other works should still be found in AO3, if you know the titles
   - ~~“Oh, but Conformity is Such a Dull Routine!” \<r\>\<g\> - <https://archiveofourown.org/works/20559770>~~ (no archives)
   - “A Blind Woman and an Elephant” - <https://archiveofourown.org/works/24484072>
+  - "My Greatest Treasure" \<r\>\<m\> - <https://archiveofourown.org/works/27310105>
+  - "Boss Lady" \<r\> - <https://archiveofourown.org/works/24631276>
 - Tak138 - <https://archiveofourown.org/users/Tak138/pseuds/Tak138>
   - “Sapphire; Color of the Sea” - <https://archiveofourown.org/works/15984947>
   - “Things Expected and Not” - <https://archiveofourown.org/works/21815479>
@@ -186,6 +193,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "The Anon and His Kitten" \<r\> - <https://anonandkitten.blogspot.com/2011/09/while-i-sleep.html>
 - TheNextGamer - Reversed Gender Norms \<r\>\<g\> - <https://chyoa.com/story/Reversed-Gender-Norms.20174/> (h/t Cas)
 - Twiddlesticks (Shovel Knight Works) \<r\> - <https://archiveofourown.org/users/Twiddlesticks/pseuds/Twiddlesticks/works?fandom_id=2991845>
+- Victoria Black - "Getting My Dues" \<r\>\<n\> - <https://archiveofourown.org/works/25035169>
 - Wen Spencer
   - “A Brother’s Price” \<r\> - <https://www.amazon.com/Brothers-Price-Wen-Spencer-ebook/dp/B000OIZU1M>
 - WokCano
