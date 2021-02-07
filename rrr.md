@@ -60,6 +60,9 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "Escape from the Bermuda triangle" \<g\> - <https://archiveofourown.org/works/5737978/chapters/13222708>
 - Batotit
   - A Woman's World \<r\>\<g\>\<n\> - <https://www.literotica.com/s/a-womans-world-pt-01>
+- BiBiComte
+  - "Perversion-Objectification-Responsibility Gender Reversal" - <https://chyoa.com/chapter/Perversion-Objectification-Responsibility-Gender-Reversal.402679>
+    - This is a CYOA story, and the parent story is <https://chyoa.com/story/Changing-the-Rules.3929> which contains a lot of other stories, most of which are not /rr/
 - Bluefishcake - "Sexy Space Babes" \<r\> - <https://www.royalroad.com/fiction/37934/sexy-space-babes> (thanks again to Cas from the google forms) (Note: Chapters 2-20 are locked, but can be purchased on amazon (see link). It's ongoing, so the rest of the chapters (21-) are still free)
 - bobanon - <https://pastebin.com/u/bobanon>
   - "The Big Bad Wolf" \<r\>\<n\>\<m\> - ~~<https://pastebin.com/RXYWAw18>~~
@@ -69,6 +72,27 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "Fever Dreams" \<g\>\<n\>\<s\> - <https://pastebin.com/8BUtvNeC>
 - captainhab - <https://pastebin.com/u/captainahab>
 - CC “Cherry” Brandi \<g\> - <https://cccherribrandi.blogspot.com/>
+- Chastity \<r\>\<n\>- <https://forum.questionablequesting.com/members/chastity.22228/>, <https://subscribestar.adult/chastity>
+  - "Mommy Fucks Her Slutty Darling Son" \<r\> - <https://forum.questionablequesting.com/threads/chastitys-commission-repository.7703/page-2#post-2186941>
+  - "Stepmother Cucks Stepdaughter" \<r\>\<s\> - <https://forum.questionablequesting.com/threads/chastitys-commission-repository.7703/page-3#post-2268002>
+  - "A Teacher Becomes A Pet In A World of Reversed Sexual Morality" \<r\>\<n\> - <https://forum.questionablequesting.com/threads/chastitys-commission-repository.7703/page-7#post-2702911>
+  - "A Healslut in a Fantasy World of Reversed Sexual Morality" \<r\>\<n\>\<m\> - <https://forum.questionablequesting.com/threads/chastitys-commission-repository.7703/page-15#post-2912397>
+  - "Eiji" \<r\> - <https://forum.questionablequesting.com/threads/chastitys-archive.7718/page-7#post-2175989>
+  - "Hiroaki" \<r\> - <https://forum.questionablequesting.com/threads/chastitys-archive.7718/page-23#post-2631910>
+  - "Takashi" \<r\>\<d\> - <https://forum.questionablequesting.com/threads/chastitys-archive.7718/page-17#post-2410159>
+  - "Prince Cleo" \<r\> - <https://forum.questionablequesting.com/threads/chastitys-archive.7718/page-8#post-2196372>
+  - "Fucktor Who" \<r\> - <https://forum.questionablequesting.com/threads/chastitys-archive.7718/page-16#post-2365917>
+  - "Shinichi" \<r\>\<n\>
+    - 1 - <https://fiction.live/stories/The-Chastity-Bordello/3XivRSayg3w3Tkr4i/Shinichi-The-Free-Use-Slut-1/svCSWosNPfM6mGt2D>
+    - 2 - <https://fiction.live/stories/The-Chastity-Bordello/3XivRSayg3w3Tkr4i/Shinichi-the-Free-Use-Slut-2/aPcYeLiBLxAXN7R26>
+  - "Reincarnated in an Otome of Reversed Sexual Morality" \<r\> - <https://forum.questionablequesting.com/threads/chastitys-commission-repository.7703/page-37#post-3413078>
+  - "World of Superheroes and Reversed Sexual Morality" \<r\>
+    - 1 - <https://fiction.live/stories/The-Chastity-Bordello/3XivRSayg3w3Tkr4i/World-of-Superheroes-and-Reversed-Sexual-Morality-Pregens/hy64TC97QW64fDEJJ>
+    - 2 - <https://fiction.live/stories/The-Chastity-Bordello/3XivRSayg3w3Tkr4i/World-of-Superheroes-and-Reversed-Sexual-Morality-2/36wAamtcMp4TMS3Gy>
+    - 3 - <https://fiction.live/stories/The-Chastity-Bordello/3XivRSayg3w3Tkr4i/World-of-Superheroes-and-Reversed-Sexual-Morality-3/BhFFHqrCE4ikbaMq7>
+  - "A World of Reversed Sexual Morality: John-San" \<r\> - <https://forum.questionablequesting.com/threads/a-world-of-reversed-sexual-morality-john-san.7928/>
+  - "Being Sophia Hess's Slut In A World of Reversed Sexual Morality" \<r\> - <https://forum.questionablequesting.com/threads/being-sophia-hesss-slut-in-a-world-of-reversed-sexual-morality-worm-plot-light.11841/>
+  - "I Slept My Way To This Post" \<r\> - <https://forum.questionablequesting.com/threads/i-slept-my-way-to-this-post-drow-original-fantasy.13782/>
 - Counselor \<r\> - <https://www.thevalkyrie.com/stories/counselor/index.htm> (thanks to u/natwa311)
 - Cynical_Writefag \<g\>\<m\> - <https://pastebin.com/u/Cynical_Writefag>
   - “Love Coils” \<r\>\<g\>\<m\> - <https://pastebin.com/M1By6hW8>
@@ -88,12 +112,19 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "Diary of a fledgling Dominatrix" - <https://www.hentai-foundry.com/stories/user/fapworthyDiction/21270/Diary-of-fledgling-Dominatrix>
   - "Chi-soo, That girl from chessclub" - <https://www.hentai-foundry.com/stories/user/fapworthyDiction/20964/Chi-Soo-That-girl-from-chessclub>
 - Fox_Wedding - "Mildly Dubious Trouble in Paradise" \<r\> - <https://archiveofourown.org/works/26430538>
+- Guardian Box - <https://forum.questionablequesting.com/members/guardian-box.16/>
+  - "A shota trapped in a world of reversed sexual morality" \<r\>
+    - 001 - <https://forum.questionablequesting.com/threads/guardians-box-of-dragon-dildos.10059/#post-2752137>
+    - 001.5 - <https://forum.questionablequesting.com/threads/guardians-box-of-dragon-dildos.10059/#post-2754696>
+    - 002 - <https://forum.questionablequesting.com/threads/guardians-box-of-dragon-dildos.10059/#post-2756124>
+    - 003 - <https://forum.questionablequesting.com/threads/guardians-box-of-dragon-dildos.10059/#post-2760240>
 - Guze - <https://pastebin.com/u/Guze>
   - "Electric Feel (Raiju)" \<n\>\<m\> - <https://pastebin.com/5zi75BCN>
 - hadron3
   - "Occupied City" \<r\>\<g\>\<n\> - ~~<https://pastebin.com/bMiTvcB7>~~
 - IneedSleep \<a\> - <https://pastebin.com/u/IneedSleep>
   - "AmazonXNobleman" \<r\>\<n\>\<a\> - <https://pastebin.com/YLiJ2HaN>
+- isekaispider - "A World of Reversed Moral Gender Roles" \<r\> - <https://www.fictionpress.com/s/3328131/1>
 - jeffrey214 - Literotica (archived)
   - "Courtesan Cop series" \<r\>\<n\> - <https://web.archive.org/web/20150111003643/https://www.literotica.com/s/courtesan-cop-ch-01>
 - Junephiel - "My Boy" - <https://archiveofourown.org/works/22554829>
@@ -184,6 +215,9 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - “A Blind Woman and an Elephant” - <https://archiveofourown.org/works/24484072>
   - "My Greatest Treasure" \<r\>\<m\> - <https://archiveofourown.org/works/27310105>
   - "Boss Lady" \<r\> - <https://archiveofourown.org/works/24631276>
+- ShimpyMob
+  - "A Gender Role Reversed Hero's Fall" \<r\>\<n\>\<m\> - <http://literotica.com/s/a-gender-role-reversed-heros-fall>
+  - "A Gender Role Reversed Hero's Fall Pt. 02" \<r\>\<n\>\<m\> - <http://literotica.com/s/a-gender-role-reversed-heros-fall-pt-02>
 - Tak138 - <https://archiveofourown.org/users/Tak138/pseuds/Tak138>
   - “Sapphire; Color of the Sea” - <https://archiveofourown.org/works/15984947>
   - “Things Expected and Not” - <https://archiveofourown.org/works/21815479>
@@ -193,6 +227,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "The Anon and His Kitten" \<r\> - <https://anonandkitten.blogspot.com/2011/09/while-i-sleep.html>
 - TheNextGamer - Reversed Gender Norms \<r\>\<g\> - <https://chyoa.com/story/Reversed-Gender-Norms.20174/> (h/t Cas)
 - Twiddlesticks (Shovel Knight Works) \<r\> - <https://archiveofourown.org/users/Twiddlesticks/pseuds/Twiddlesticks/works?fandom_id=2991845>
+- Vexin98 - "A Boxer In A Strange New World" \<r\> - <https://forum.questionablequesting.com/threads/a-boxer-in-a-strange-new-world.12201/>
 - Victoria Black - "Getting My Dues" \<r\>\<n\> - <https://archiveofourown.org/works/25035169>
 - Wen Spencer
   - “A Brother’s Price” \<r\> - <https://www.amazon.com/Brothers-Price-Wen-Spencer-ebook/dp/B000OIZU1M>
