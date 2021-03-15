@@ -3,7 +3,9 @@
 **Suggestions? You can now use [this Google form](https://docs.google.com/forms/d/e/1FAIpQLSf81EkDKDYo_33TsGJeAnMNCu2SwSPwoIdsrGuEaj52a07Smg/viewform?usp=sf_link) to provide suggestions
 anonymously!**
 
-**All NSFW Pastebin posts are now set to private.** See [discussion](https://github.com/OriginalSinger/role-reversal-resources/issues/9).
+I'll *try* to update this at least once a month from now on, like how [Yandere Resources](https://docs.google.com/document/d/1rfm8knOG6iiJ8xyLAltVvcGNdRimVKtGqHMiI5O0cLE/edit) does it (no promises!), so you know when to check.
+
+Some NSFW Pastebin posts are now set to private. See [discussion](https://github.com/OriginalSinger/role-reversal-resources/issues/9).
 
 Note: the original gdoc was flagged. Here's a backup of the original gdoc: <https://drive.google.com/file/d/100nIw1mh5paYFdqukmkgiqvs8VATcSvW/view?usp=sharing>  
 It's a zip file (mainly an attempt to avoid the flagging of google) of a pdf and a docx file of the original document. The docx file includes the comments, the pdf file does not.  
@@ -45,12 +47,12 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - Anime Misstery
   - "Role Reversal" \<r\> - <https://www.fictionpress.com/s/2955400/1/Role-Reversal>
 - Anonymous
-  - "Valentine /gfd/ Part 1" \<g\> - ~~<https://pastebin.com/tW34EBHL>~~
-  - "Valentine /gfd/ Part 2" \<g\> - ~~<https://pastebin.com/hMDENVVs>~~
-  - “Valentine /gfd/ (Ch. 1-2 re-upload + Ch. 3)” \<g\> - ~~<https://pastebin.com/HYzhwYmu>~~
-  - “'Official' ending to Valentine/gfd/ (Read Note)” - ~~<https://pastebin.com/yv0XpsCm>~~
+  - "Valentine /gfd/ Part 1" \<g\> - <https://web.archive.org/web/20160425021315/http://pastebin.com:80/tW34EBHL>
+  - "Valentine /gfd/ Part 2" \<g\> - <https://web.archive.org/web/20160425011023/http://pastebin.com:80/hMDENVVs>
+  - “Valentine /gfd/ (Ch. 1-2 re-upload + Ch. 3)” \<g\> - <https://web.archive.org/web/20190805063814/https://pastebin.com/HYzhwYmu>
+  - “'Official' ending to Valentine/gfd/ (Read Note)” - <https://web.archive.org/web/20190805064354/https://pastebin.com/yv0XpsCm>
   - "/d/#6687901" \<r\>\<g\>\<n\> - <https://pastebin.com/eAsk39Yb>
-  - "Untitled" \<g\> - ~~<https://pastebin.com/iiPc7ASn>~~
+  - "Untitled" \<g\> - <https://web.archive.org/web/20190723094239/https://pastebin.com/iiPc7ASn>
 - bandagedboy \<g\> - <https://pastebin.com/u/bandagedboy>
   - "LK/M" \<r\>\<g\>\<n\> - <https://pastebin.com/90DDMFUQ>
   - "RN" \<r\> - <https://pastebin.com/VCrDLCBh>
@@ -64,9 +66,9 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "Perversion-Objectification-Responsibility Gender Reversal" - <https://chyoa.com/chapter/Perversion-Objectification-Responsibility-Gender-Reversal.402679>
     - This is a CYOA story, and the parent story is <https://chyoa.com/story/Changing-the-Rules.3929> which contains a lot of other stories, most of which are not /rr/
 - Bluefishcake - "Sexy Space Babes" \<r\> - <https://www.royalroad.com/fiction/37934/sexy-space-babes> (thanks again to Cas from the google forms) (Note: Chapters 2-20 are locked, but can be purchased on amazon (see link). It's ongoing, so the rest of the chapters (21-) are still free)
-- bobanon - <https://pastebin.com/u/bobanon>
-  - "The Big Bad Wolf" \<r\>\<n\>\<m\> - ~~<https://pastebin.com/RXYWAw18>~~
-  - "The Big Bad Wolf 2" \<r\>\<n\>\<m\> - ~~<https://pastebin.com/eeZ9ZdKF>~~
+- bobanon - <http://touchfluffytail.org/?author=8> <https://pastebin.com/u/bobanon> <http://bobanon.pbworks.com/>
+  - "The Big Bad Wolf" \<r\>\<n\>\<m\> - <http://touchfluffytail.org/?story=big-bad-wolf>
+  - "The Big Bad Wolf 2" \<r\>\<n\>\<m\> - <http://touchfluffytail.org/?story=big-bad-wolf-2>
 - ~~CampGreen \<r\>\<n\>\<m\> - <https://archiveofourown.org/users/CampGreen/pseuds/CampGreen>~~ (no archives)
 - cabin_writer - <https://pastebin.com/u/cabin_writer>
   - "Fever Dreams" \<g\>\<n\>\<s\> - <https://pastebin.com/8BUtvNeC>
@@ -101,9 +103,9 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - “Slay or be Slain” \<r\>\<g\>\<m\> - <https://pastebin.com/jsHyNSp7>
   - “They came in outer space” \<r\>\<g\> - <https://pastebin.com/g9meyxdb>
 - Dagdammit - <https://pastebin.com/u/Dagdammit>
-  - "Runner (Incomplete)" \<r\> - ~~<https://pastebin.com/205nDvys>~~
+  - "Runner (Incomplete)" \<r\> - <https://web.archive.org/web/20160625003315/https://pastebin.com/205nDvys>
   - “Assassin” - <https://pastebin.com/yhxfhU8T>
-  - “Demoness” - ~~<https://pastebin.com/wupUXuBv>~~
+  - “Demoness” - <https://web.archive.org/web/20161029102631/https://pastebin.com/wupUXuBv>
 - decadentbynature
   - "Monster's Kiss" \<r\>\<n\>\<m\> - <https://archiveofourown.org/works/14941940/chapters/34620338>
 - Dorine54
@@ -121,13 +123,36 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - Guze - <https://pastebin.com/u/Guze>
   - "Electric Feel (Raiju)" \<n\>\<m\> - <https://pastebin.com/5zi75BCN>
 - hadron3
-  - "Occupied City" \<r\>\<g\>\<n\> - ~~<https://pastebin.com/bMiTvcB7>~~
+  - "Occupied City" \<r\>\<g\>\<n\> - <https://web.archive.org/web/20190805063116/https://pastebin.com/bMiTvcB7>
 - IneedSleep \<a\> - <https://pastebin.com/u/IneedSleep>
   - "AmazonXNobleman" \<r\>\<n\>\<a\> - <https://pastebin.com/YLiJ2HaN>
 - isekaispider - "A World of Reversed Moral Gender Roles" \<r\> - <https://www.fictionpress.com/s/3328131/1>
 - jeffrey214 - Literotica (archived)
   - "Courtesan Cop series" \<r\>\<n\> - <https://web.archive.org/web/20150111003643/https://www.literotica.com/s/courtesan-cop-ch-01>
 - Junephiel - "My Boy" - <https://archiveofourown.org/works/22554829>
+- kevinlaroche \<r\>\<n\> - <https://www.literotica.com/stories/memberpage.php?uid=5612069&page=submissions>
+  - "Beauty Claims the Cute Dork" - <https://www.literotica.com/s/beauty-claims-the-cute-dork>
+  - "Belonging to the Rich Bitch" - <https://www.literotica.com/s/belonging-to-the-rich-bitch>
+  - "Cheerleader's Nerdy Cuckold" - <https://www.literotica.com/s/cheerleaders-nerdy-cuckold>
+  - "Confession by Rape" - <https://www.literotica.com/s/confession-by-rape>
+  - "He Belongs to Her Ass" - <https://www.literotica.com/s/he-belongs-to-her-ass>
+  - "He Loved Her When She's Geeky..." - <https://www.literotica.com/s/he-loved-her-when-shes-geeky>
+  - "Her Prize" - <https://www.literotica.com/s/her-prize>
+  - "Her Victim, His Bully"
+    - <https://www.literotica.com/s/her-victim-his-bully-ch-01>
+    - <https://www.literotica.com/s/her-victim-his-bully-ch-02>
+    - <https://www.literotica.com/s/her-victim-his-bully-ch-03>
+    - <https://www.literotica.com/s/her-victim-his-bully-ch-04>
+    - <https://www.literotica.com/s/her-victim-his-bully-ch-05>
+  - "His Sister's Hot Friend Fucks Him" - <https://www.literotica.com/s/his-sisters-hot-friend-fucks-him>
+  - "Megan cheats"
+    - <https://www.literotica.com/s/megan-cheats-pt-01>
+    - <https://www.literotica.com/s/megan-cheats-pt-02>
+  - "Saving the Bitch" - <https://www.literotica.com/s/saving-the-bitch>
+  - "The Bitch Gets What She Wants" - <https://www.literotica.com/s/the-bitch-gets-what-she-wants>
+  - "Too Adorable For His Own Good" - <https://www.literotica.com/s/too-adorable-for-his-own-good>
+  - "Unable to Leave" - <https://www.literotica.com/s/unable-to-leave>
+  - "Whether He's Ready or Not..." - <https://www.literotica.com/s/whether-hes-ready-or-not>
 - KnightWriter \<r\>\<g\>\<k\> - <https://pastebin.com/u/KnightWriter>
   - "Lady Johanna - Intro" \<r\>\<g\>\<k\> - <https://pastebin.com/CqCbh3Q7>
   - "Lady Johanna - Chapter 1" \<r\>\<g\>\<k\> - <https://pastebin.com/CqCbh3Q7>
@@ -160,6 +185,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - OctoSally (thanks to u/BossB15)
   - "How To Train Your Angel-Wolf-Boyfriend" \<r\> - <https://archiveofourown.org/works/3384977?view_full_work=true>
 - odilemoon - "Secondhand Elf" \<r\>\<g\>\<n\> - <https://archiveofourown.org/works/26177209>
+- Onlysorta - "Big Sister is Always Watching" \<r\> - <https://chyoa.com/chapter/Big-Sister-is-Always-Watching-%5BOnlysorta%5D.893074>
 - orphan_account (works on ArchiveOfOurOwn that were abandoned by its author (may be completed/incomplete))
   - "Humans Are Such Easy Prey" \<r\>\<n\> - <https://archiveofourown.org/works/22685935>
 - PrinceCai - <https://chyoa.com/user/PrinceCai> (h/t Cas (from the suggestion form))
@@ -167,19 +193,68 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - The Fairer Sex \<r\>\<g\> - <https://chyoa.com/story/The-Fairer-Sex.29987> (h/t Cas)
   - The Captive Prince \<r\>\<g\>\<m\>\<n\> - <https://chyoa.com/story/The-Captive-Prince.27292> (h/t Cas)
 - PRW
-  - "Alex and Eris" \<r\>\<g\>\<n\>\<m\> - ~~<https://pastebin.com/DtU8qHDt>~~
+  - "Alex and Eris" \<r\>\<g\>\<n\>\<m\> - <https://web.archive.org/web/20170324230716/https://pastebin.com/DtU8qHDt>
 - PulpWyatt \<r\>\<n\> - <https://www.literotica.com/stories/memberpage.php?uid=1903426&page=submissions>
-  - “A Symbolic Message” \<r\>\<g\> - <https://www.literotica.com/s/a-symbolic-message>
+  - "A Real Husband" \<r\>\<m\> - <https://www.literotica.com/s/a-real-husband>
+  - "A Symbolic Message" \<r\>\<g\> - <https://www.literotica.com/s/a-symbolic-message>
+  - "A Symbolic Message - The Conclusion" \<r\> - <https://www.literotica.com/s/a-symbolic-message-the-conclusion>
+  - "An Unexpected Memory" - <https://www.literotica.com/s/an-unexpected-memory>
+  - "At the End of the Temple" - <https://www.literotica.com/s/at-the-end-of-the-temple>
+  - "Barge Boy Captured" - <https://www.literotica.com/s/barge-boy-captured>
+  - "Conquistadora" - <https://www.literotica.com/s/conquistadora>
+  - "Feels Dirty to Lie" - <https://www.literotica.com/s/feels-dirty-to-lie>
+  - "Guerillas" - <https://www.literotica.com/s/guerillas>
+  - "Haley Makes it to the Top" - <https://www.literotica.com/s/haley-makes-it-to-the-top>
+  - "Her Fan for the Night" - <https://www.literotica.com/s/her-fan-for-the-night>
+  - "Mind Editor" - <https://www.literotica.com/s/mind-editor>
+  - "Monster Boys" - <https://www.literotica.com/s/monster-boys>
+  - "More than a Poisoned Hand" - <https://www.literotica.com/s/more-than-a-poisoned-hand>
+  - "My Good Deed" - <https://www.literotica.com/s/my-good-deed-1>
+  - "Night Woman's Brand" - <https://www.literotica.com/s/night-womans-brand>
+  - "Priestess and the Soldier" - <https://www.literotica.com/s/priestess-and-the-soldier>
+  - "Priestess' Gambit" - <https://www.literotica.com/s/priestess-gambit>
+  - "Reconfigured" - <https://www.literotica.com/s/reconfigured>
+  - "Run, Boy" - <https://www.literotica.com/s/run-boy>
+  - "Silenced Thief" - <https://www.literotica.com/s/silenced-thief>
+  - "Skulkers" - <https://www.literotica.com/s/skulkers>
+  - "Slave Boy Auction" - <https://www.literotica.com/s/slave-boy-auction>
+  - "Sold From the North" - <https://www.literotica.com/s/sold-from-the-north>
+  - "Something in the Snare" - <https://www.literotica.com/s/something-in-the-snare>
+  - "Spider King" - <https://www.literotica.com/s/spider-king>
+  - "Spirited Away" - <https://www.literotica.com/s/spirited-away-1>
+  - "Spirited Back" - <https://www.literotica.com/s/spirited-back>
+  - "Strapped to the Wall" - <https://www.literotica.com/s/strapped-to-the-wall>
+  - "Take Him Back" - <https://www.literotica.com/s/take-him-back>
+  - "Taken Up North" - <https://www.literotica.com/s/taken-up-north>
+  - "The Fighting Fucktoy" - <https://www.literotica.com/s/the-fighting-fucktoy>
+  - "The Finest Steal" - <https://www.literotica.com/s/the-finest-steal>
+  - "The Fleeing Fucktoy" - <https://www.literotica.com/s/the-fleeing-fucktoy>
+  - "The Kind of Man Who'd Go on the Run" - <https://www.literotica.com/s/the-kind-of-man-whod-go-on-the-run>
+  - "The Scheming Fucktoy" - <https://www.literotica.com/s/the-scheming-fucktoy>
+  - "The Shore of Monster Boys" - <https://www.literotica.com/s/the-shore-of-monster-boys>
+  - "The Standup Boys' Close Call" - <https://www.literotica.com/s/the-standup-boys-close-call>
+  - "The Standup Boys' Fall" - <https://www.literotica.com/s/the-standup-boys-fall>
+  - "The Standup Boys' Last Fight" - <https://www.literotica.com/s/the-standup-boys-last-fight>
+  - "The Standup Boys' New Hope" - <https://www.literotica.com/s/the-standup-boys-new-hope>
+  - "The Standup Boys' Revolution" - <https://www.literotica.com/s/the-standup-boys-revolution>
+  - "The Standup Boys' Runaway" - <https://www.literotica.com/s/the-standup-boys-runaway>
+  - "The Stonebare Witches" - <https://www.literotica.com/s/the-stonebare-witches>
+  - "This Will Make Us Rich" \<r\>\<n\> - <https://www.literotica.com/s/this-will-make-us-rich>
+  - "Trained Up North" - <https://www.literotica.com/s/trained-up-north>
+  - "Two Fine Catches" - <https://www.literotica.com/s/two-fine-catches>
+  - "Where Princes Kneel" - <https://www.literotica.com/s/where-princes-kneel>
+  - "Without Suspecting a Thing" - <https://www.literotica.com/s/without-suspecting-a-thing>
 - Rainbowbloodunicorn - <https://pastebin.com/u/Rainbowbloodunicorn>
 - RIVI - <https://pastebin.com/u/RIVI>
 - rrranon
   - "Chronicles of Penth" (series) \<r\>\<g\> - <https://chroniclesofpenth.wordpress.com/2016/08/09/arrival-1-1/>
-- RSanon \<n\> - <https://pastebin.com/u/RSanon>
-  - "It's not the fall that kills you" (series) \<n\>\<m\> - <https://pastebin.com/ySSLx5bz>
-  - "Attentive Care" \<n\>\<m\> - <https://pastebin.com/3Dj9RmmG>
-  - "Reverse Gloryhole" \<n\>\<m\> - <https://pastebin.com/uEv9sU0C>
+- RSanon/rserenity \<m\>\<n\> - <https://pastebin.com/u/RSanon> <https://archiveofourown.org/users/rserenity/works>
+  - "It's not the fall that kills you" (series) \<n\>\<m\> - <https://archiveofourown.org/works/28674942> <https://pastebin.com/ySSLx5bz>
+  - "Attentive Care" \<n\>\<m\> - <https://archiveofourown.org/works/29736849> <https://pastebin.com/3Dj9RmmG>
+  - "Reverse Gloryhole" \<n\>\<m\> - <https://archiveofourown.org/works/29736939> <https://pastebin.com/uEv9sU0C>
   - "Marilith's Mending Massage" \<g\>\<m\> - <https://pastebin.com/wbueqzir>
   - "Gretchen, MD" \<n\>\<m\> - <https://pastebin.com/4W7sZd7i>
+  - "Great [Monster] Journey" \<m\>\<n\> - <https://archiveofourown.org/works/28673736>
 - safnar
   - "Dark Priest (Short Story)" \<r\>\<m\> - <http://monstergirlencyclopedia.wikia.com/wiki/User_blog:Safnar/Dark_Priest_(Short_story)>
 - Salamando_Flames \<r\> - <https://www.literotica.com/stories/memberpage.php?uid=1082173&page=submissions>
@@ -189,8 +264,8 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "My manager is my mistress (non lewd)" \<g\> - <https://pastebin.com/TJAvFqgf>
   - "I don't bite" \<g\> - <https://pastebin.com/hWmZEyjb>
 - Silent_II/Frugert
-  - "Endors Toi" \<r\>\<g\>\<m\> - ~~<https://pastebin.com/JAv9gYYR>~~
-  - "Kiss From a Rose \<r\>\<g\>\<m\> - ~~<https://pastebin.com/JAv9gYYR>~~
+  - "Endors Toi" \<r\>\<g\>\<m\> - <https://web.archive.org/web/20170304075259/https://www.literotica.com/s/endors-toi>
+  - "Kiss From a Rose \<r\>\<g\>\<m\> - <https://web.archive.org/web/20200830212431/https://pastebin.com/JAv9gYYR>
   - Older Works <https://drive.google.com/drive/folders/0BzL7aw4ZKvmNaEIxSWFkblpHbUE>
 - smolbrit - <https://web.archive.org/web/20160922043824/http://pastebin.com/u/Smolbrit>
 - snekguy \<r\>\<g\>\<n\>\<m\> - <https://www.patreon.com/Snekguy> / <http://snekguy.com>
@@ -221,6 +296,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - Tak138 - <https://archiveofourown.org/users/Tak138/pseuds/Tak138>
   - “Sapphire; Color of the Sea” - <https://archiveofourown.org/works/15984947>
   - “Things Expected and Not” - <https://archiveofourown.org/works/21815479>
+  - "Daylight" \<r\>\<g\> - <https://archiveofourown.org/works/29751192>
 - Tommykaine
   - "Please don't take my sunshine" \<r\> - <https://archiveofourown.org/works/14004846> (Focuses on M/M, but has F/M elements)
 - The Anon and His Kitten \<r\> - <https://anonandkitten.blogspot.com/> (recommended by someone I can't find right now)
@@ -301,6 +377,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Kawaii Hito \<r\> - <https://mangadex.org/title/16050>
 - Kawaii Oresama \<r\> - <https://mangadex.org/title/11502>
 - Kimi wa Petto - <https://mangadex.org/title/2966>
+- King's Favor \<r\> - <https://mangadex.org/title/36985> (thanks to anon from the Google Forms)
 - Kitty Boy - <https://tapas.io/series/kittyboy> (h/t [/u/UtaTan](https://www.reddit.com/r/RoleReversal/comments/f5ruo4))
 - Koi desu ga Koi Janai \<r\>\<d\> - <https://mangadex.org/title/22020>
 - Koisuru Yankee Girl \<d\> - <https://mangadex.org/title/19245> (thanks to u/realFoobanana)
@@ -375,6 +452,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Witch Craft Works \<r\> - <https://mangadex.org/title/46>
 - Yancha Gal no Anjou-san \<d\> - <https://mangadex.org/title/26630> (thanks to u/Naizuri77)
 - Yankee Shota to Otaku Onee-san \<s\>\<d\> - <https://mangadex.org/title/22077>
+- Yeonwoo's Innocence \<r\> - <https://manhuascan.com/manga-yeonwoos-innocence.html> (thanks to anon from the Google Forms)
 - You Are Obscene, My Queen \<r\> - <https://mangadex.org/title/7200> (Note: **NSFW**)
 - Yofukashi no Uta - <https://mangadex.org/title/40969>
 - Yuuutsu to Succubus-san \<g\> - <https://mangadex.org/title/21423> (thanks to u/FloatAway97)
