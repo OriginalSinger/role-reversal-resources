@@ -95,6 +95,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "A World of Reversed Sexual Morality: John-San" \<r\> - <https://forum.questionablequesting.com/threads/a-world-of-reversed-sexual-morality-john-san.7928/>
   - "Being Sophia Hess's Slut In A World of Reversed Sexual Morality" \<r\> - <https://forum.questionablequesting.com/threads/being-sophia-hesss-slut-in-a-world-of-reversed-sexual-morality-worm-plot-light.11841/>
   - "I Slept My Way To This Post" \<r\> - <https://forum.questionablequesting.com/threads/i-slept-my-way-to-this-post-drow-original-fantasy.13782/>
+  - "Superheroine-Seducing Accountant" \<r\> - <https://archiveofourown.org/works/29900751>
 - Counselor \<r\> - <https://www.thevalkyrie.com/stories/counselor/index.htm> (thanks to u/natwa311)
 - Cynical_Writefag \<g\>\<m\> - <https://pastebin.com/u/Cynical_Writefag>
   - “Love Coils” \<r\>\<g\>\<m\> - <https://pastebin.com/M1By6hW8>
@@ -182,6 +183,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - murg
   - "Let Me In, Even If Just to Bore Me" \<r\>\<sfw\> - <https://archiveofourown.org/works/19745350>
   - "Grocery Girl" \<r\>\<sfw\> - <https://archiveofourown.org/works/28246437>
+- No_War_Just_Porn - "The Princess' Possession" \<r\> - <https://archiveofourown.org/works/29442852>
 - OctoSally (thanks to u/BossB15)
   - "How To Train Your Angel-Wolf-Boyfriend" \<r\> - <https://archiveofourown.org/works/3384977?view_full_work=true>
 - odilemoon - "Secondhand Elf" \<r\>\<g\>\<n\> - <https://archiveofourown.org/works/26177209>
@@ -245,6 +247,9 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "Where Princes Kneel" - <https://www.literotica.com/s/where-princes-kneel>
   - "Without Suspecting a Thing" - <https://www.literotica.com/s/without-suspecting-a-thing>
 - Rainbowbloodunicorn - <https://pastebin.com/u/Rainbowbloodunicorn>
+- Riteliso
+  - "Don't say Grace. (Her Name is Mistress tonight.)" \<r\> - <https://archiveofourown.org/works/27001225>
+  - "Victoria's Prey" \<n\> - <https://archiveofourown.org/works/27003823>
 - RIVI - <https://pastebin.com/u/RIVI>
 - rrranon
   - "Chronicles of Penth" (series) \<r\>\<g\> - <https://chroniclesofpenth.wordpress.com/2016/08/09/arrival-1-1/>
@@ -302,6 +307,9 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - The Anon and His Kitten \<r\> - <https://anonandkitten.blogspot.com/> (recommended by someone I can't find right now)
   - "The Anon and His Kitten" \<r\> - <https://anonandkitten.blogspot.com/2011/09/while-i-sleep.html>
 - TheNextGamer - Reversed Gender Norms \<r\>\<g\> - <https://chyoa.com/story/Reversed-Gender-Norms.20174/> (h/t Cas)
+- TheWeirdDane
+  - "A slave for your love" \<r\>\<n\>\<m\> - <https://archiveofourown.org/works/10928973>
+  - "12 times the love" \<r\>\<n\>\<m\> - <https://archiveofourown.org/works/11308467>
 - Twiddlesticks (Shovel Knight Works) \<r\> - <https://archiveofourown.org/users/Twiddlesticks/pseuds/Twiddlesticks/works?fandom_id=2991845>
 - Vexin98 - "A Boxer In A Strange New World" \<r\> - <https://forum.questionablequesting.com/threads/a-boxer-in-a-strange-new-world.12201/>
 - Victoria Black - "Getting My Dues" \<r\>\<n\> - <https://archiveofourown.org/works/25035169>
@@ -320,6 +328,8 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - hoeofyoon - "Mommy's Playtoy" \<r\>\<g\> - <https://www.wattpad.com/story/153270907>
   - hoeofyoon - "Bet? Bet" \<r\>\<g\> - <https://www.wattpad.com/story/155193857-bet-bet-j-jk-mommy-kink>
   - makixuxi - "[01:27 am]" \<r\>\<g\> - <https://www.wattpad.com/story/156899954-01-27-am>
+- YtheWizard
+  - "Your Party Becomes Orc Breeding Stock" \<r\>\<n\>\<m\> - <https://archiveofourown.org/works/30359187>
 
 ## Artworks (not comics/manga)
 
