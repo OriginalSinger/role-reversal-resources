@@ -115,6 +115,9 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "Diary of a fledgling Dominatrix" - <https://www.hentai-foundry.com/stories/user/fapworthyDiction/21270/Diary-of-fledgling-Dominatrix>
   - "Chi-soo, That girl from chessclub" - <https://www.hentai-foundry.com/stories/user/fapworthyDiction/20964/Chi-Soo-That-girl-from-chessclub>
 - Fox_Wedding - "Mildly Dubious Trouble in Paradise" \<r\> - <https://archiveofourown.org/works/26430538>
+- GodAmongstMen - <https://archiveofourown.org/users/GodAmongstMen/pseuds/GodAmongstMen>
+  - "The Parahuman Matriarchy: Issue 1" \<r\> - <https://archiveofourown.org/works/28347783>
+  - "The Parahuman Matriarchy: Issue 2" \<r\> - <https://archiveofourown.org/works/28361601>
 - Guardian Box - <https://forum.questionablequesting.com/members/guardian-box.16/>
   - "A shota trapped in a world of reversed sexual morality" \<r\>
     - 001 - <https://forum.questionablequesting.com/threads/guardians-box-of-dragon-dildos.10059/#post-2752137>
@@ -125,6 +128,9 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "Electric Feel (Raiju)" \<n\>\<m\> - <https://pastebin.com/5zi75BCN>
 - hadron3
   - "Occupied City" \<r\>\<g\>\<n\> - <https://web.archive.org/web/20190805063116/https://pastebin.com/bMiTvcB7>
+- haugr - <https://archiveofourown.org/users/haugr/pseuds/haugr>
+  - "Fox Hunt" \<r\> - <https://archiveofourown.org/works/31107539>
+  - "Viper and Flame" \<r\> - <https://archiveofourown.org/works/27132247>
 - IneedSleep \<a\> - <https://pastebin.com/u/IneedSleep>
   - "AmazonXNobleman" \<r\>\<n\>\<a\> - <https://pastebin.com/YLiJ2HaN>
 - isekaispider - "A World of Reversed Moral Gender Roles" \<r\> - <https://www.fictionpress.com/s/3328131/1>
@@ -171,7 +177,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "In Your Honor" \<r\> - <https://www.literotica.com/s/in-your-honor>
   - "In Your Wildest Dreams" \<r\> - <https://www.literotica.com/s/in-your-wildest-dreams-1>
 - locallilkiddo - "Welted Hands, White Hair" - <https://archiveofourown.org/works/13053612>
-- Man of the House \<r\>\<g\> - <https://whatsawhizzerwebnovels.com/the-man-of-the-house/> (h/t Cas) (_Note: site is down as of 19 Oct 2020_)
+- Man of the House \<r\>\<g\> - <https://whatsawhizzerwebnovels.com/the-man-of-the-house/> (h/t Cas)
   - Mirror: <https://www.scribblehub.com/series/65587/the-man-of-the-house/>
 - manwhohasitall \<r\> - <https://twitter.com/manwhohasitall> (h/t [/u/\_nok](https://reddit.com/r/RoleReversal/comments/gahbx4))
 - MarsBenway - <https://www.literotica.com/stories/memberpage.php?uid=4366564&page=submissions>
@@ -302,6 +308,10 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - “Sapphire; Color of the Sea” - <https://archiveofourown.org/works/15984947>
   - “Things Expected and Not” - <https://archiveofourown.org/works/21815479>
   - "Daylight" \<r\>\<g\> - <https://archiveofourown.org/works/29751192>
+- TheRisingValkyrie - <https://archiveofourown.org/users/TheRisingValkyrie/pseuds/TheRisingValkyrie>
+  (Note: These works are written in Russian. You can use Google Translate to read it in English, the resulting prose isn't bad, surprisingly.)
+  - "Трофеи" \<r\>\<n\>\<m\> - <https://archiveofourown.org/works/30923735>
+  - "Офицерия" \<r\>\<n\> - <https://archiveofourown.org/works/29997099>
 - Tommykaine
   - "Please don't take my sunshine" \<r\> - <https://archiveofourown.org/works/14004846> (Focuses on M/M, but has F/M elements)
 - The Anon and His Kitten \<r\> - <https://anonandkitten.blogspot.com/> (recommended by someone I can't find right now)
