@@ -177,6 +177,10 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "In Your Honor" \<r\> - <https://www.literotica.com/s/in-your-honor>
   - "In Your Wildest Dreams" \<r\> - <https://www.literotica.com/s/in-your-wildest-dreams-1>
 - locallilkiddo - "Welted Hands, White Hair" - <https://archiveofourown.org/works/13053612>
+- Lutarrel - <https://archiveofourown.org/users/Lutarrel/pseuds/Lutarrel>
+  - "A Transfer of Power" - <https://archiveofourown.org/works/26454745>
+  - "Promotional Envy" - <https://archiveofourown.org/works/29991837>
+  - "Songbird" \<r\>\<g\> - <https://archiveofourown.org/works/31876240>
 - Man of the House \<r\>\<g\> - <https://whatsawhizzerwebnovels.com/the-man-of-the-house/> (h/t Cas)
   - Mirror: <https://www.scribblehub.com/series/65587/the-man-of-the-house/>
 - manwhohasitall \<r\> - <https://twitter.com/manwhohasitall> (h/t [/u/\_nok](https://reddit.com/r/RoleReversal/comments/gahbx4))
@@ -339,6 +343,8 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - hoeofyoon - "Bet? Bet" \<r\>\<g\> - <https://www.wattpad.com/story/155193857-bet-bet-j-jk-mommy-kink>
   - makixuxi - "[01:27 am]" \<r\>\<g\> - <https://www.wattpad.com/story/156899954-01-27-am>
 - YtheWizard
+  - "Musings On Being Newly Married" \<r\>\<n\>\<m\> - <https://archiveofourown.org/works/32087125>
+  - "The Raiders" \<r\>\<n\> - <https://archiveofourown.org/works/32056051>
   - "Your Party Becomes Orc Breeding Stock" \<r\>\<n\>\<m\> - <https://archiveofourown.org/works/30359187>
 
 ## Artworks (not comics/manga)
@@ -384,6 +390,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Horimiya \<r\> - <https://mangadex.org/title/6770>
 - Hyoutenka no Nukumori \<r\> - <https://mangadex.org/title/42000>
 - Ice Guy and the Cool Female Colleague \<r\> - <https://mangadex.org/title/35447>
+- If I get serious, I can kill you ❤ \<r\> - <https://cubari.moe/read/imgur/A4CfrTi/1/1/>
 - Ijiranaide, Nagatoro-san \<d\> - <https://mangadex.org/title/22631>
 - Ikenai Candy Love \<r\> - <https://mangadex.org/title/3185>
 - Immortal Swordsman in The Reverse World \<r\> - <https://mangadex.org/title/45361>
@@ -391,6 +398,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - It’s Not Meguro-san’s First Time - <https://mangadex.org/title/31233> (thanks to u/realFoobanana)
 - It's Okay to be Shy! \<r\> - <https://henamyung.tumblr.com/search/it%27s+okay+to+be+shy>
 - It's Summer! There's Fireworks! And for Boys, a Yukata! \<r\> - <https://mangadex.org/title/7315>
+- I Wanna Think He's Just My Roommate \<r\> - <https://cubari.moe/read/imgur/Z7dbvpZ/1/1/>
 - Just Give it to Me \<r\> - <https://www.tappytoon.com/series/giveittome/1>
 - Kanokon \<g\> - <https://mangadex.org/title/235> (thanks to u/FloatAway97)
 - Karakai Jouzu no Takagi-san - <https://mangadex.org/title/13108>
