@@ -73,6 +73,8 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - cabin_writer - <https://pastebin.com/u/cabin_writer>
   - "Fever Dreams" \<g\>\<n\>\<s\> - <https://pastebin.com/8BUtvNeC>
 - captainhab - <https://pastebin.com/u/captainahab>
+- Carol_J
+  - "Monster Girl Mixer Ch. 02" \<r\>\<g\>\<m\> - <https://www.literotica.com/s/monster-girl-mixer-ch-02>
 - CC “Cherry” Brandi \<g\> - <https://cccherribrandi.blogspot.com/>
 - Chastity \<r\>\<n\>- <https://forum.questionablequesting.com/members/chastity.22228/>, <https://subscribestar.adult/chastity>
   - "Mommy Fucks Her Slutty Darling Son" \<r\> - <https://forum.questionablequesting.com/threads/chastitys-commission-repository.7703/page-2#post-2186941>
@@ -136,7 +138,12 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - isekaispider - "A World of Reversed Moral Gender Roles" \<r\> - <https://www.fictionpress.com/s/3328131/1>
 - jeffrey214 - Literotica (archived)
   - "Courtesan Cop series" \<r\>\<n\> - <https://web.archive.org/web/20150111003643/https://www.literotica.com/s/courtesan-cop-ch-01>
+- jessy19 - <https://www.literotica.com/stories/memberpage.php?uid=217950&page=submissions>
+  - "Corrupting The Golden Boy Ch. 01" \<n\> - <https://www.literotica.com/s/corrupting-the-golden-boy-ch-01>
+  - "Corrupting The Golden Boy Ch. 02" \<n\> - <https://www.literotica.com/s/corrupting-the-golden-boy-ch-02>
+  - "Corrupting The Golden Boy Ch. 03" \<n\> - <https://www.literotica.com/s/corrupting-the-golden-boy-ch-03>
 - Junephiel - "My Boy" - <https://archiveofourown.org/works/22554829>
+- kennycumbuckets \<r\>\<n\> - <https://www.literotica.com/stories/memberpage.php?uid=3011965&page=submissions> (h/t cas)
 - kevinlaroche \<r\>\<n\> - <https://www.literotica.com/stories/memberpage.php?uid=5612069&page=submissions>
   - "Beauty Claims the Cute Dork" - <https://www.literotica.com/s/beauty-claims-the-cute-dork>
   - "Belonging to the Rich Bitch" - <https://www.literotica.com/s/belonging-to-the-rich-bitch>
@@ -343,6 +350,7 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - hoeofyoon - "Bet? Bet" \<r\>\<g\> - <https://www.wattpad.com/story/155193857-bet-bet-j-jk-mommy-kink>
   - makixuxi - "[01:27 am]" \<r\>\<g\> - <https://www.wattpad.com/story/156899954-01-27-am>
 - YtheWizard
+  - "Commentary On A Lilim's Conquests" \<r\>\<n\>\<m\> - <https://archiveofourown.org/works/32444152>
   - "Musings On Being Newly Married" \<r\>\<n\>\<m\> - <https://archiveofourown.org/works/32087125>
   - "The Raiders" \<r\>\<n\> - <https://archiveofourown.org/works/32056051>
   - "Your Party Becomes Orc Breeding Stock" \<r\>\<n\>\<m\> - <https://archiveofourown.org/works/30359187>
