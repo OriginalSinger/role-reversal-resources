@@ -408,8 +408,9 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - It's Summer! There's Fireworks! And for Boys, a Yukata! \<r\> - <https://mangadex.org/title/7315>
 - I Wanna Think He's Just My Roommate \<r\> - <https://cubari.moe/read/imgur/Z7dbvpZ/1/1/>
 - Josou Shite Machi ni Kuridashitara Ikemen ni Nanpa Sareru \<r\>\<c\>
-  - While Cross-Dressing, I Was Hit on by a Handsome Guy! (Chpaters 1-35) - <https://mangadex.org/title/685db91e-a8ab-4de3-9738-9d3f883bd179>
-  - Handsome Girl and Crossdressing Boy (Translation name change, Chapters 35.5-*) - <https://cubari.moe/read/gist/JcdGu/>
+  - Note: Translation team changes name and sites partway through. First: (Chapters 1-35), Second: (Chapters 35.5-*)
+  - While Cross-Dressing, I Was Hit on by a Handsome Guy! - <https://mangadex.org/title/685db91e-a8ab-4de3-9738-9d3f883bd179>
+  - Handsome Girl and Crossdressing Boy - <https://cubari.moe/read/gist/JcdGu/>
 - Just Give it to Me \<r\> - <https://www.tappytoon.com/series/giveittome/1>
 - Kanokon \<g\> - <https://mangadex.org/title/235> (thanks to u/FloatAway97)
 - Karakai Jouzu no Takagi-san - <https://mangadex.org/title/13108>
