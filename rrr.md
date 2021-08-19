@@ -389,7 +389,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Gekkan Shoujo Nozaki-kun \<r\> - <https://mangadex.org/title/1880>
 - Girls of the Wild's \<r\>\<g\> - <https://mangadex.org/title/1021> (thanks to u/Shirotheskyrimnerd)
 - Gokushufudou: The Way of the House Husband \<r\> - <https://mangadex.org/title/23569>
-- Hades Could Use Some Divine Intervention r - <https://mangadex.org/title/24295>
+- Hades Could Use Some Divine Intervention \<r\> - <https://mangadex.org/title/24295>
 - Haru x Kiyo \<r\> - <https://mangadex.org/title/9727>
 - Hasumi-kun to Hasumi-san - <https://mangadex.org/title/18568>
 - Hey boy! Let's take a break. - <https://mangadex.org/title/35766>
