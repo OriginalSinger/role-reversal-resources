@@ -389,7 +389,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - Gekkan Shoujo Nozaki-kun \<r\> - <https://mangadex.org/title/1880>
 - Girls of the Wild's \<r\>\<g\> - <https://mangadex.org/title/1021> (thanks to u/Shirotheskyrimnerd)
 - Gokushufudou: The Way of the House Husband \<r\> - <https://mangadex.org/title/23569>
-- Hades Could Use Some Divine Intervention r - <https://mangadex.org/title/24295>
+- Hades Could Use Some Divine Intervention \<r\> - <https://mangadex.org/title/24295>
 - Haru x Kiyo \<r\> - <https://mangadex.org/title/9727>
 - Hasumi-kun to Hasumi-san - <https://mangadex.org/title/18568>
 - Hey boy! Let's take a break. - <https://mangadex.org/title/35766>
@@ -407,6 +407,10 @@ I compiled these into an MDList. It’s better to browse there since you can dir
 - It's Okay to be Shy! \<r\> - <https://henamyung.tumblr.com/search/it%27s+okay+to+be+shy>
 - It's Summer! There's Fireworks! And for Boys, a Yukata! \<r\> - <https://mangadex.org/title/7315>
 - I Wanna Think He's Just My Roommate \<r\> - <https://cubari.moe/read/imgur/Z7dbvpZ/1/1/>
+- Josou Shite Machi ni Kuridashitara Ikemen ni Nanpa Sareru \<r\>\<c\>
+  - Note: Translation team changes name and sites partway through. First: (Chapters 1-35), Second: (Chapters 35.5-*)
+  - While Cross-Dressing, I Was Hit on by a Handsome Guy! - <https://mangadex.org/title/685db91e-a8ab-4de3-9738-9d3f883bd179>
+  - Handsome Girl and Crossdressing Boy - <https://cubari.moe/read/gist/JcdGu/>
 - Just Give it to Me \<r\> - <https://www.tappytoon.com/series/giveittome/1>
 - Kanokon \<g\> - <https://mangadex.org/title/235> (thanks to u/FloatAway97)
 - Karakai Jouzu no Takagi-san - <https://mangadex.org/title/13108>
