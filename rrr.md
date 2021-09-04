@@ -75,6 +75,8 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - captainhab - <https://pastebin.com/u/captainahab>
 - Carol_J
   - "Monster Girl Mixer Ch. 02" \<r\>\<g\>\<m\> - <https://www.literotica.com/s/monster-girl-mixer-ch-02>
+- Casual_Improv
+  - "RWBY with reverse morals" \<r\> - <https://archiveofourown.org/works/33025153>
 - CC “Cherry” Brandi \<g\> - <https://cccherribrandi.blogspot.com/>
 - Chastity \<r\>\<n\>- <https://forum.questionablequesting.com/members/chastity.22228/>, <https://subscribestar.adult/chastity>
   - "Mommy Fucks Her Slutty Darling Son" \<r\> - <https://forum.questionablequesting.com/threads/chastitys-commission-repository.7703/page-2#post-2186941>
@@ -99,6 +101,9 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "I Slept My Way To This Post" \<r\> - <https://forum.questionablequesting.com/threads/i-slept-my-way-to-this-post-drow-original-fantasy.13782/>
   - "Superheroine-Seducing Accountant" \<r\> - <https://archiveofourown.org/works/29900751>
 - Counselor \<r\> - <https://www.thevalkyrie.com/stories/counselor/index.htm> (thanks to u/natwa311)
+- CowboyWeeb \<r\>\<m\>- <https://archiveofourown.org/users/CowboyWeeb/pseuds/CowboyWeeb>
+  - "Don't Waste Soap" \<r\>\<n\>\<m\> - <https://archiveofourown.org/works/28927269/chapters/70975014>
+  - "Come My Piggies" \<r\>\<n\>\<m\> - <https://archiveofourown.org/works/33391792/chapters/82939603>
 - Cynical_Writefag \<g\>\<m\> - <https://pastebin.com/u/Cynical_Writefag>
   - “Love Coils” \<r\>\<g\>\<m\> - <https://pastebin.com/M1By6hW8>
   - “Love and War” \<r\>\<g\> - <https://pastebin.com/wEfJPFrp>
@@ -194,6 +199,10 @@ I'll update this paste just like I did with the original gdoc, but at some point
 - MarsBenway - <https://www.literotica.com/stories/memberpage.php?uid=4366564&page=submissions>
   - Used by London Bankers \<r\>\<n\> - <https://www.literotica.com/s/used-by-london-bankers>
 - Martha Wells - "The Books of the Raksura"
+- micmin
+  - "Short ficlets" \<r\>\<g\>\<n\> - <https://archiveofourown.org/works/24658780>
+- MiriamKenneath
+  - "Responsibility" - <https://archiveofourown.org/works/21187337>
 - MirrorDragon
   - "A Heated Challenge" \<r\>\<g\>\<n\>\<m\>(?)\<k\> - <https://archiveofourown.org/works/18121049/chapters/42840746>
   - "Good Vibes Only" \<r\>\<g\>\<n\>\<m\>(?)\<k\> - <https://archiveofourown.org/works/19399153/chapters/46164328>
@@ -289,6 +298,10 @@ I'll update this paste just like I did with the original gdoc, but at some point
   - "Endors Toi" \<r\>\<g\>\<m\> - <https://web.archive.org/web/20170304075259/https://www.literotica.com/s/endors-toi>
   - "Kiss From a Rose \<r\>\<g\>\<m\> - <https://web.archive.org/web/20200830212431/https://pastebin.com/JAv9gYYR>
   - Older Works <https://drive.google.com/drive/folders/0BzL7aw4ZKvmNaEIxSWFkblpHbUE>
+- sinereal
+  - "How I Became the Male Equivalent of a JK" \<r\> - <https://forum.questionablequesting.com/threads/how-i-became-the-male-equivalent-of-a-jk.15757/>
+- Sinx02
+  - "From Boyfriend to Pet" \<g\> - <https://archiveofourown.org/works/32296447>
 - smolbrit - <https://web.archive.org/web/20160922043824/http://pastebin.com/u/Smolbrit>
 - snekguy \<r\>\<g\>\<n\>\<m\> - <https://www.patreon.com/Snekguy> / <http://snekguy.com>
   - Everything he's ever written, with tags and synopses - <http://snekguy.com/>
@@ -757,6 +770,7 @@ I compiled these into an MDList. It’s better to browse there since you can dir
   - "Reverse Netorare" - <https://www.mangaupdates.com/series.html?orderby=rating&category=Reverse+Netorare>
   - "Reverse Rape" - <https://www.mangaupdates.com/series.html?orderby=rating&category=Reverse+Rape>
   - "Female Dominance" - <https://www.mangaupdates.com/series.html?perpage=100&category=Female+Dominance&orderby=rating>
+- /r/FemgazeHentai - <https://reddit.com/r/FemgazeHentai/>
 
 ## Notes
 
